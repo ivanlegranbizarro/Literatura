@@ -1,9 +1,8 @@
-
-<div align="justify">
 ## Lagartos
 
 ### Iván Legrán
 
+<div align="justify">
 1
 
 Disfrazado de esqueleto (un pijama negro al que su madre le había enganchado con la plancha unos adhesivos de huesos) James Chamberlain miró a Fabiana Marlowe y pensó: qué mal se le da.
