@@ -82,12 +82,7 @@ Hablaron durante mucho rato y se dieron los móviles -es la manera que tienen lo
 
 -Sí. Se te da fatal ahuyentarlos.
 
-
-
-
 2
-
-
 
 Después del accidente, y aunque se acostumbró asombrosamente bien a los hechos, James siempre piensa especialmente en aquellos primeros años con Fabiana. James ha empezado a soportar el presente gracias al pasado; a veces piensa que quizá es algo normal y que, en mayor o menor medida, a todo el mundo le ocurre lo mismo que a él. ¿Qué es envejecer si no?
 
