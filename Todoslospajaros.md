@@ -23259,3 +23259,64 @@ A veces pienso
 que si friego los platos muy bien
 todos mis seres queridos
 volverán conmigo.
+
+
+
+
+
+## Existe
+
+
+Debo admitir
+que ferocizas mis sentimientos.
+
+Es más, a veces, llegas a incluso
+a robarme vocales.
+Entonces yo
+flojo, monótono, roto como todo lo solo,
+lo oso todo
+o lo corto todo.
+
+Me corta todo desde que te volví a descubrir.
+
+No quiero volar.
+No quiero volver a volar porque
+desconfío del fuselaje de los aviones.
+
+Quiero reescribir todo el terror pasado.
+Sustituirlo por esto de ahora, por este nosotros de ahora
+que debería durar para siempre.
+
+Juguemos.
+Juguemos a
+a piedra, papel y tijeras.
+Déjame Perder
+para ganar
+haciendo todo lo que tú quieras.
+
+Esta es la primera vez en mi vida
+que no me basta con deducir el amor.
+No quiero suponer nada; quiero que me beses, que te cuelgues de mi cuello
+y que me des a cada rato
+algo de amor en metálico.
+
+Ven. Ven conmigo.
+Ayúdame a convencer a mi madre
+de que no es necesario
+que le pegue a su perro.
+Ven. Vente conmigo.
+Cojamos a todos los asesinos,
+cobremos todas las recompensas
+y regocijémonos
+en que el amor existe.
+
+Porque el amor existe.
+
+Claro que existe.
+
+Y si no que se fijen en nosotros;
+yo soy gordo, tengo
+alopecia  y erecciones aseguradas solo por la mañana
+y, sin embargo, si me retraso,
+si llego tarde a casa,
+tú me telefoneas preocupada.
