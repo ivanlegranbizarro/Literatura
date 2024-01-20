@@ -23320,3 +23320,28 @@ alopecia  y erecciones aseguradas solo por la mañana
 y, sin embargo, si me retraso,
 si llego tarde a casa,
 tú me telefoneas preocupada.
+
+
+
+
+
+## Cachorros
+
+No quiero tener hijos contigo.
+Contigo lo que quiero tener
+son cachorros.
+Una camada de por lo menos cinco o seis.
+Me da igual cómo se llamen,
+escoge tú los nombres.
+Lo importante,
+lo realmente importante
+es que todos sean iguales que tú.
+
+Lo repito;
+no quiero simplemente
+tener hijos contigo.
+Lo que quiero para el futuro
+es estar contigo
+en una casa soleada, andaluza,
+e ir llenándola
+de copias tuyas.
