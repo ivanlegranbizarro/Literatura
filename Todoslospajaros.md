@@ -23335,13 +23335,11 @@ Me da igual cómo se llamen,
 escoge tú los nombres.
 Lo importante,
 lo realmente importante
-es que todos sean iguales que tú.
+es que todos se parezcan mucho a ti.
 
-Lo repito;
-no quiero simplemente
-tener hijos contigo.
+No quiero tener hijos contigo.
 Lo que quiero para el futuro
 es estar contigo
 en una casa soleada, andaluza,
-e ir llenándola
-de copias tuyas.
+donde podamos hacer
+un montón de copias tuyas.
