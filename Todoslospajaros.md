@@ -23395,7 +23395,7 @@ como el día en que llegó a esta casa.
 
 Me levanté de un brinco
 y empecé a descojonarme de la risa:
-¡Cabrón!
+_¡Cabrón!_
 
 Así fue
 como supe
