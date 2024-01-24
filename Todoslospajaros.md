@@ -23237,7 +23237,7 @@ y doy bien la luz
 solo a veces.
 
 Quizá debería
-destituir la soledad
+desterrar la soledad
 de esta casa
 con un perro.
 
@@ -23285,7 +23285,8 @@ No quiero volver a volar porque
 desconfío del fuselaje de los aviones.
 
 Quiero reescribir todo el terror pasado.
-Sustituirlo por esto de ahora, por este nosotros de ahora
+Sustituirlo por esto de ahora,
+por este nosotros de ahora
 que debería durar para siempre.
 
 Juguemos.
@@ -23348,4 +23349,62 @@ un montón de copias tuyas.
 
 
 
-## La casa encantada
+## Por fin mi casa está encantada
+
+La primera noche esperaba oír algún ruido.
+Si quiera,
+algún portazo
+de aprobación o de protesta
+en el armario
+en el que había guardado
+las cenizas de mi padre.
+
+Mi padre no se había portado
+especialmente bien
+hacia el final de su vida
+así que pensé que,
+al menos,
+en algún momento
+la Biblia se movería
+o algún crucifijo
+empezaría a girar en la pared.
+
+Pero nada.
+No sentí ningún escalofrío.
+No se rompió ningún vaso.
+No escuché ningún susurro
+durante la madrugada.
+
+La vida ha ido continuando
+y esta casa
+se ha resistido
+a dejar entrar
+al fantasma que le corresponde.
+
+Sin embargo,
+todo cambió la otra noche.
+
+LLegué del trabajo
+y me senté en la cama
+para descalzarme las bambas.
+Nada más sentarme lo noté:
+no se me hundía el culo;
+el colchón había rejuvenecido,
+volviéndose duro
+como el día en que llegó a esta casa.
+
+Me levanté de un brinco
+y empecé a descojonarme de la risa:
+¡Cabrón!
+
+Así fue
+como supe
+que el fantasma de mi padre
+había estado conmigo
+todo este tiempo.
+Simplemente,
+había pasado
+lo mismo que pasaba
+cuando él estaba vivo;
+habíamos estado un tiempo
+sin dirigirnos la palabra.
