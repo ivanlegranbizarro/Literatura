@@ -573,3 +573,13 @@ Lo sentimos mucho. Lamentamos comunicarle que la persona a la que trata de local
 Andrea se tapó la boca con la mano y sufrió una breve convulsión de sollozo. La abracé. Pasados unos segundos, mi novia lanzó una mirada a la ventana buscando a Mark. El pájaro seguía allí, mirando sin comprender, irradiando, involuntariamente, esa alegría de los tonos tropicales que festoneaban su plumaje de agapornis. Andrea se acercó a Mark con más lechuga en la mano. Mientras el pájaro picoteaba la jugosa comida, ella comenzó a explicarle en voz baja lo que había pasado con su dueño.
 
 Yo amo a Andrea por cosas así.
+
+
+
+
+
+
+## La boda de Daisy
+
+Alex Taylor. Fred Johnson. Daisy lesbiana. Cubertería con dos margaritas; una a cada extremo.
+Final: Un desgraciado. Estaría amargado por algo. Alex se suicida con el revólver de Fred. Una mano atada y la otra libre para poderse defender en caso de transformación
