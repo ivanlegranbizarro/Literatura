@@ -23224,7 +23224,9 @@ el paisaje se vuelve borroso
 como mi alma insegura.
 
 En sus últimos años
-mi padre tenía la mirada caduca
+mi padre tenía la mirada
+grande y triste
+de los cabezales
 de las cintas VHS.
 
 No sé hablar de él.
@@ -23265,7 +23267,6 @@ volverán conmigo.
 
 
 ## Existe
-
 
 Debo admitir
 que ferocizas mis sentimientos.
@@ -23324,7 +23325,6 @@ tú me telefoneas preocupada.
 
 
 
-
 ## Cachorros
 
 No quiero tener hijos contigo.
@@ -23343,3 +23343,9 @@ es estar contigo
 en una casa soleada, andaluza,
 donde podamos hacer
 un montón de copias tuyas.
+
+
+
+
+
+## La casa encantada
