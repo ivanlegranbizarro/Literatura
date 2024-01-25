@@ -214,7 +214,7 @@ Fran se fue a trabajar a China.
 
 Rubén o Judith dejó a Judith o Rubén.
 
-Pudin le declaró la guerra a Ucrania
+Putin le declaró la guerra a Ucrania
 y los precios subieron.
 
 Aún llevamos mascarillas
@@ -1157,7 +1157,7 @@ y prometen que se tatuarán algo
 cuando su perro muera.
 
 Cuando bebo
-me crecen las máquinas del tiempo. Y cuando eso ocurre a veces regreso a esa chica. La repaso, autopsio su mirada,
+me crecen las máquinas del tiempo. Y cuando eso ocurre a veces regreso a esa chica. La repaso, autopsío su mirada,
 taso cada una de nuestras despedidas, y me pierdo en mitad
 de la guerra tan interesante que libramos.
 
