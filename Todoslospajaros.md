@@ -20646,7 +20646,6 @@ Caballero, soy del cementerio,
 
 
 
-
 ## ¿Un hijo?
 
 Siempre he dicho
@@ -20676,7 +20675,7 @@ Supongo que solo lo pienso ahora.
 En este ahora de ahora.
 En este justo momento
 pinzado entre el porvenir
-y el yavenido.
+y el ya venido.
 
 ¿Qué clase de mundo
 es este que nos han legado?
@@ -20756,7 +20755,7 @@ al otro lado del espejo,
 a la joven que ella fue durante los 80.
 
 Para ser una casualidad.
-Para ser todos nostros
+Para ser todos nosotros
 productos de las travesuras matemáticas
 de la energía cuántica,
 he de decir que el cosmos
@@ -23344,7 +23343,6 @@ es estar contigo
 en una casa soleada, andaluza,
 donde podamos hacer
 un montón de copias tuyas.
-
 
 
 
