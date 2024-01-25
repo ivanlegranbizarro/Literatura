@@ -23403,8 +23403,8 @@ que el fantasma de mi padre
 había estado conmigo
 todo este tiempo.
 Simplemente,
-había pasado
+ha pasado
 lo mismo que pasaba
 cuando él estaba vivo;
-habíamos estado un tiempo
+hemos estado un tiempo
 sin dirigirnos la palabra.
