@@ -23394,7 +23394,7 @@ volviéndose duro
 como el día en que llegó a esta casa.
 
 Me levanté de un brinco
-y empecé a descojonarme de la risa:
+y empecé con las carcajadas.
 _¡Cabrón!_
 
 Así fue
