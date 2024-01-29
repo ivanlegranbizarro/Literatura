@@ -16,41 +16,31 @@ Homero: Bardo
 
 ## ACTO I
 ### Escena I
-No hay nada en el escenario. El fondo es negro. Solo iluminación de diversos colores sobre
-Pigmalión y Galatea, que aparecerán en escena nada más alzarse el telón.
+No hay nada en el escenario. El fondo es negro. Solo iluminación de diversos colores sobre Pigmalión y Galatea, que aparecerán en escena nada más alzarse el telón.
 Pigmalión: -Eres tan perfecta.
 Galatea: -No, ¡tú eres tan perfecto!
 Pgimalión: -Oh, pero es que tú... tu pelo, tus ojos... Oh, ¡mi
 Al unísono: -¡QUERID@!
 Pigmalión: -Te siento tan cercana a mí. Tú eres todo...
-Galatea: -... lo que espero y necesito -se le adelanta ella. Él asume la interrupción con
-satisfacción. Se abrazan.
-Entra en escena el Monstruo de 4 cabezas. Merodeará alrededor de ellos, a una prudencial distancia,
-pero poco a poco se irá aproximando a Galatea hasta quedar detrás de ella, olisqueándola. Ellos
+Galatea: -... lo que espero y necesito -se le adelanta ella. Él asume la interrupción con satisfacción. Se abrazan.
+Entra en escena el Monstruo de 4 cabezas. Merodeará alrededor de ellos, a una prudencial distancia, pero poco a poco se irá aproximando a Galatea hasta quedar detrás de ella, olisqueándola. Ellos
 sigues lanzándose piropos y carantoñas mientras el monstruo se acerca a ella.
-Galatea: -Oh, mi Pigmalión, los de maquillaje te han dejado tan, tan precioso... Eres mi
-príncipe.
-Pigmalión: -Sí, bueno, el tuyo y el de todo Chipre... Pero tú para mí, eres... -repara en El
-Monstruo de 4 cabezas-... ¡Un monstruo de cuatro cabezas!
+Galatea: -Oh, mi Pigmalión, los de maquillaje te han dejado tan, tan precioso... Eres mi príncipe.
+Pigmalión: -Sí, bueno, el tuyo y el de todo Chipre... Pero tú para mí, eres... -repara en El Monstruo de 4 cabezas-... ¡Un monstruo de cuatro cabezas!
 Galatea: -¿Qué? ¿Eso te parece que soy?
 Pigmalión: -No, querida, ¡detrás de ti!
 Galatea se gira, observa al monstruo y suspira aliviada.
 Galatea: -Uf, menos mal. Porque esta mañana yo solo tenía una cabeza y no hubiera podido
 explicarte cuándo me habrían crecido las otras tres.
-Pigmalión: -Pero, Galatea... es un monstruo. Ponte detrás de mí -Pigmalión se lleva la mano a la
-espada y hace un gesto protector hacia Galatea. Ella lo mira fijamente, algo mohína.
-Galatea: -Así que un simple monstruo de cuatro cabezas... ¿hace que dejes de prestarme
-atención?
+Pigmalión: -Pero, Galatea... es un monstruo. Ponte detrás de mí -Pigmalión se lleva la mano a la espada y hace un gesto protector hacia Galatea. Ella lo mira fijamente, algo mohína.
+Galatea: -Así que un simple monstruo de cuatro cabezas... ¿hace que dejes de prestarme atención?
 Pigmalión: -Galatea... pues quizá, un poquito sí, ¿no? ¿Y si quiere matarnos?
 Galatea: -¿Es mi príncipe un cobarde?
-Pigmalión: -¡Claro que no! -vuelve a llevarse la mano a la espada, esta vez la desenvaina y
-apunta con ella al monstruo-. ¿Quién eres tú, oh, vil criatura?
-Monstruo: -No me he presentado porque lo habéis adivinado enseguida. Supongo que soy fácil
-de reconocer.
+Pigmalión: -¡Claro que no! -vuelve a llevarse la mano a la espada, esta vez la desenvaina y apunta con ella al monstruo-. ¿Quién eres tú, oh, vil criatura?
+Monstruo: -No me he presentado porque lo habéis adivinado enseguida. Supongo que soy fácil de reconocer.
 Pigmalión: -¿Reconocer? Solo he dicho que eres un monstruo de cuatro cabezas.
 Monstruo: -Pues eso. Me llamo “Monstruo de cuatro cabezas”.
-Galatea: -Pero, vamos a ver, criatura... extraña, ¿acaso ese es el nombre que te pusieron tus
-padres?
+Galatea: -Pero, vamos a ver, criatura... extraña, ¿acaso ese es el nombre que te pusieron tus padres?
 Monstruo: -Eso es, os lo estoy diciendo.
 Galatea: -Pues qué nombre tan raro.
 Monstruo: -Oh, vaya. Tenéis toda la razón del mundo. Si vais a cualquier colegio y oís a un
