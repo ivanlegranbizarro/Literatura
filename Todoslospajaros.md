@@ -20082,7 +20082,7 @@ con una lágrima de verdad en el ojo.
 
 
 
-## Maldita zorra
+## Maldita seas
 
 Fuiste el último amor que logró
 empañarme las gafas de puro asombro.
