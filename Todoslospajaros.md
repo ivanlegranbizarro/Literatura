@@ -14441,7 +14441,7 @@ sobrenaturales
 y empezamos a ser más grandes
 que las conversaciones
 sobre si el agua del lugar
-nos dejaba el pelo más graso.
+nos dejaba el pelo graso.
 
 Nos elevamos.
 Nos hicimos gigantes
@@ -14500,7 +14500,6 @@ para lamernos sin hacer ruido.
 Miro a la gente, a mi novia y a mi familia, tal y como Neil Armstrong debía de mirar a la suya: con nostalgia de haber estado en la luna.
 
 ¿Tendrás en cuenta lo hermosos que somos?
-
 
 ¿Tendrás en cuenta
 la forma en que se aceleran nuestras sombras al aproximarnos; la prisa que llevan
@@ -15039,7 +15038,8 @@ sus tres nietos
 habían amanecido
 sanos y salvos
 sin que se los tragara el tenebroso campo.
-El verano es una mala época para ser feminista
+
+## El verano es una mala época para ser feminista
 
 
 
@@ -15121,7 +15121,6 @@ lo aplastas
 sin que te importe
 que su sangre (que es la tuya robada)
 manche las paredes.
-
 
 Y entonces, por fin,
 duermes feliz,
