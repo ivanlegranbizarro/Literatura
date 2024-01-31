@@ -14681,7 +14681,7 @@ y que estemos solamente
 pendientes el otro
 del uno
 como si fuésemos la Dama y el Vagabundo
-mirándonos fijamente a los ojos,
+mirándonos fijamente a los ojos
 mientras comemos espaguetis.
 
 Es bueno escapar de ti,
