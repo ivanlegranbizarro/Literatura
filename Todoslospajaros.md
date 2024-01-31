@@ -20091,8 +20091,8 @@ es a la discontinuidad de la muerte.
 
 Porque igual que la muerte
 tú me resultas
-un tema desagradable
-con el que me topo constantemente.
+una desesperanza
+en la que pienso constantemente.
 Me caigo en ti
 igual que en mis sueños
 me caigo en agujeros
