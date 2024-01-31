@@ -20087,7 +20087,7 @@ Fuiste el último amor que logró
 empañarme las gafas de puro asombro.
 Pero a lo que más te pareces
 para mí
-es a la muerte.
+es a la discontinuidad de la muerte.
 
 Porque igual que la muerte
 tú me resultas
