@@ -22533,9 +22533,11 @@ que tú y yo no nos veamos,
 a pesar de que sé
 que si estuviéramos juntos
 nos brillaría más el pelo,
-y nos miraríamos
-como miran los perros a sus dueños
-justo antes de que les lancen una golosina.
+y nos relameríamos
+como se relamen los gatos
+cuando les sirven
+carne enlatada
+en el plato.
 
 No te conozco, pero si te conociera
 me da la sensación
