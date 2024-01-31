@@ -13950,7 +13950,7 @@ pero malo
 para los artistas.
 
 Y mientras tanto
-para nostros sigue existiendo
+para nosotros sigue existiendo
 un día a día
 que se basa en esa soledad
 de quienes no pueden evitar reparar
