@@ -14677,13 +14677,17 @@ que haga pan con mis sentimientos.
 ## Gemma
 
 Es bueno no vernos más.
-Es bueno no estar en una reunión juntos y que estemos solamente
-pendientes el uno del otro,
-como si fuésemos la Dama y el Vagabundo mirándonos fijamente a los ojos,
+Es bueno no estar en una reunión juntos
+y que estemos solamente
+pendientes el otro
+del uno
+como si fuésemos la Dama y el Vagabundo
+mirándonos fijamente a los ojos,
 mientras comemos espaguetis.
 
 Es bueno escapar de ti,
-eso quiere decir que ya no soy un niño y que algún día
+eso quiere decir
+que ya no soy un niño y que algún día
 conseguiré urbanizar esta tristeza
 haciendo cosas muy cabales:
 beber cerveza,
