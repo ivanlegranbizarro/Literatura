@@ -23416,4 +23416,50 @@ sin dirigirnos la palabra.
 
 
 
-## Vertido tóxico
+## Río Llobregat: Un nuevo vertixo tóxico envenena sus aguas
+
+El Prat de Llobregat, 1 de febrero de 2024.
+
+Un nuevo vertido tóxico
+ha sido detectado
+en el Río Llobregat, casi a la altura
+de su desembocadura.
+
+El vertido, que se creía
+procedente de una fábrica química
+cercana a la zona
+ha resultado ser, sin embargo,
+procedente de un hombre bueno
+que quería verterse dulcemente
+sobre otra persona.
+
+Cómo es posible,
+se preguntan los vecinos,
+que una persona cabal, luminosa,
+haya sido capaz
+de ensuciar así su río.
+
+Les transcribimos
+las declaraciones del detenido:
+
+'Ella siempre sale guapa en las fotos.
+Yo solo quería
+tutearla sobrecogedoramente.
+Llevarla a sitios bonitos
+en donde tuviéramos
+que usar los prismáticos.
+
+No entiendo
+por qué se niega a ser mágica.
+
+Cuando se enfada
+es solamente
+una diosa estúpida'.
+
+Grupos de voluntarios
+y varias asociaciones ecologistas
+se han acercado
+hasta la zona del vertido
+para tratar de salvar
+al mayor número posible
+de pájaros.
