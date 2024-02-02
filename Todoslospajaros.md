@@ -23416,7 +23416,7 @@ sin dirigirnos la palabra.
 
 
 
-## Río Llobregat: Un nuevo vertixo tóxico envenena sus aguas
+## Río Llobregat: Un nuevo vertido tóxico envenena sus aguas
 
 El Prat de Llobregat, 1 de febrero de 2024.
 
@@ -23447,7 +23447,7 @@ Yo solo quería
 tutearla sobrecogedoramente.
 Llevarla a sitios bonitos
 en donde tuviéramos
-que usar los prismáticos.
+que usar prismáticos.
 
 No entiendo
 por qué se niega a ser mágica conmigo.
