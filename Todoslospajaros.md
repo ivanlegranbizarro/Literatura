@@ -23450,7 +23450,7 @@ en donde tuviéramos
 que usar los prismáticos.
 
 No entiendo
-por qué se niega a ser mágica.
+por qué se niega a ser mágica conmigo.
 
 Cuando se enfada
 es solamente
