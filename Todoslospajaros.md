@@ -23454,7 +23454,7 @@ por qué se niega a ser mágica conmigo.
 
 Cuando se enfada
 es solamente
-una diosa estúpida'.
+una Diosa testaruda'.
 
 Grupos de voluntarios
 y varias asociaciones ecologistas
