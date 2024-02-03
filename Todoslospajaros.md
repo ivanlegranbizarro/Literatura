@@ -23463,3 +23463,52 @@ hasta la zona del vertido
 para tratar de salvar
 al mayor número posible
 de pájaros.
+
+
+
+
+
+## Largas hemorragias
+
+Estoy leyendo Guerra Mundial Z
+y me está pareciendo arrollador,
+relveador, hermoso, en conclusión:
+muy humano.
+
+Estoy escuchando canciones
+de blues y de flamenco
+que me convierten en un perro
+que come hierba para purgarse.
+
+Lo he comprobado
+empíricamente:
+Desde que te fuiste
+mis heridas
+tardan más tiempo en cerrarse.
+Coagulo peor,
+me corto cocinando
+y tengo que presionarme muy fuerte
+o urgirme con gran celeridad
+para hacerme un torniquete.
+
+Es ciencia:
+Sin ti sangro más;
+los médicos barajan
+dos posibilidades:
+o bien mis plaquetas
+se han vuelto más melancólicas,
+o bien mi sangre
+ya no quiere estar conmigo
+y lo único que hace
+es buscar puntos de escape
+desde los que lanzarse
+al vacío.
+
+Estando así,
+sangrándolo todo
+por nada,
+me pregunto de qué me sirve
+la cultura
+si no puedo convertirla
+en una hogaza de pan
+que compartir contigo.
