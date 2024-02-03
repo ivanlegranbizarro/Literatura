@@ -23472,7 +23472,8 @@ de pájaros.
 
 Estoy leyendo Guerra Mundial Z
 y me está pareciendo arrollador,
-relveador, hermoso, en conclusión:
+relveador, hermoso,
+en conclusión:
 muy humano.
 
 Estoy escuchando canciones
@@ -23485,7 +23486,7 @@ empíricamente:
 Desde que te fuiste
 mis heridas
 tardan más tiempo en cerrarse.
-Coagulo peor,
+Coagulo peor;
 me corto cocinando
 y tengo que presionarme muy fuerte
 o urgirme con gran celeridad
