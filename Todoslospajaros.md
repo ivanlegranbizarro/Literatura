@@ -14678,9 +14678,9 @@ que haga pan con mis sentimientos.
 Es bueno no vernos más.
 Es bueno no estar en una reunión juntos
 y que estemos solamente
-pendientes el otro
-del uno
-como si fuésemos la Dama y el Vagabundo
+pendientes el uno
+del otro
+como si fuésemos la Dama y el Vagabundo,
 mirándonos fijamente a los ojos
 mientras comemos espaguetis.
 
