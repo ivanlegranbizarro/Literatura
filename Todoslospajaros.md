@@ -23497,7 +23497,7 @@ Sin ti sangro más;
 los médicos barajan
 dos posibilidades:
 o bien mis plaquetas
-se han vuelto más melancólicas,
+se han vuelto melancólicas,
 o bien mi sangre
 ya no quiere estar conmigo
 y lo único que hace
