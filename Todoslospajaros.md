@@ -23492,7 +23492,7 @@ y tengo que presionarme muy fuerte
 o urgirme con gran celeridad
 para hacerme un torniquete.
 
-Es ciencia:
+Es pura ciencia:
 Sin ti sangro más;
 los médicos barajan
 dos posibilidades:
