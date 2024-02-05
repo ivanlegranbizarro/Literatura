@@ -27,7 +27,7 @@ Fabiana ladeó el rostro hacia el otro lado y sonrió enseguida, nada más termi
 
 -Y tú vas disfrazado de esqueleto... qué original.
 
-James imaginó por un instante que le replicaba: “No, voy disfrazado de chico poco original que se disfraza de esqueleto”, pero ya tenía 23 años y sabía cuándo había que sacrificar algunas situaciones para que no se pudrieran y para que, además, nacieran otras mejores.
+James imaginó por un instante que le replicaba: “No, voy disfrazado de chico poco original que se disfraza de esqueleto”, pero ya tenía 23 años y sabía cuándo había que sacrificar algunas situaciones para que no se pudrieran y para que, además, surgieran otras mejores.
 
 -¿Cómo te llamas?
 
@@ -43,9 +43,9 @@ En ese instante, a Fabiana le pareció una pregunta rara.
 
 -Vinieron a mitad del embarazo, ¿por qué?
 
--Bueno, no sé. Si vinieron justo antes de que tu madre diera a luz sería dramático. Se trata de un bebé italiano que al nacer se da cuenta de que no está en Italia. Si, en cambio, el embarazo fue aquí, si la barriga de tu madre creció rodeada por McDonalds, Halloweens y Chips Ahoy pues simplemente eres una americana que ha heredado un aspecto italiano.
+-Bueno, no sé. Si vinieron justo antes de que tu madre diera a luz sería dramático. Se trata de un bebé italiano que al nacer se da cuenta de que no está en Italia. Si, en cambio, el embarazo fue aquí, si la barriga de tu madre creció rodeada por McDonalds, Halloweens y Chips Ahoy, pues simplemente eres una americana que ha heredado un aspecto italiano.
 
-Fabiana no recordaría esa pregunta de James como una pregunta rara, sino como una pregunta hermosa. La chica de 18 años acababa de ingerir la respuesta de James como si estuviera en un concurso de tartas y una persona que no le cae muy bien le hubiera dado a probar una tarta deliciosa; ella no quería que se le notara que James la estaba embelesando tan rápida e imparablemente. Y lo malo es que se le notaba, lo bueno es que James solo tenía 23 años y aún no sabía notar esas cosas en las mujeres.
+Fabiana no recordaría esa pregunta de James como una pregunta rara, sino como una pregunta hermosa. La chica de 18 años acababa de digerir la respuesta de James como si estuviera en un concurso de tartas y una persona que no le cae muy bien le hubiera dado a probar una tarta deliciosa; ella no quería que se le notara que James la estaba embelesando con tanta facilidad. Lo malo es que se le notaba, lo bueno es que James solo tenía 23 años y aún no sabía notar esas cosas en las mujeres.
 
 -Bueno, ¿y tú cómo te llamas?
 
