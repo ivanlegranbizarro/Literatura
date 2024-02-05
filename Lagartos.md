@@ -156,7 +156,7 @@ Cuando Bush decidió que ya tenía un sólido cartel de excusas para montar una 
 
 -Pero no ahora, en plena guerra de Vietnam.
 
-El Alzheimer hacía que para la anciana todas las guerras fueran la misma.
+El Alzheimer hacía que para la anciana todas las guerras fueran la de Vietnam.
 
 James sabía que había dos tipos de supervivientes de guerra: los que volvían más patrióticos y los que volvían menos patrióticos. Su abuelo fue de estos últimos. El viejo nunca se había comportado como esos soldados que aparecen en las películas sobre veteranos de guerra; simplemente había regresado fumando y bebiendo mucho más. A veces la madre de James se arrodillaba junto a su padre y le decía:
 
@@ -170,13 +170,13 @@ James sabía que había dos tipos de supervivientes de guerra: los que volvían 
 
 -No sé... ¿por qué lo haces?
 
--Para acabar antes.
+-Porque sí.
 
-Lo consiguió. Ronald Chamberlain dejó una larga viudedad a la abuela de James.
+Ese "porque sí" no duraría demasiados años. Ronald Chamberlain dejó una larga viudedad a la abuela de James.
 
-James y Fabiana estaban en casa de esta, solos, viendo la tele, cuando se derrumbaron las Torres Gemelas. Lo que hicieron fue flipar. Abrieron la boca delante de la tele y poco a poco se escandalizaron de una forma que podría confundirse con alegría: ¡hostia puta! Luego, ambos coincidieron en que sufrieron una pequeña arritmia, una bola en el pecho les apremió a los dos a coger los teléfonos y asegurarse de que sus conocidos estaban bien. Desafortunadamente, toda América sintió una arritmia y se apresuró a coger el teléfono; las líneas estaban saturadas. James se marchó a su casa un momento para compartir su conmoción con su familia y asegurarse -y asegurarles a ellos- de que todo andaba bien.
+James y Fabiana estaban en casa de esta, solos, viendo la tele, cuando se derrumbaron las Torres Gemelas. Contemplaron el derrumbe maravillados; flipados. Abrieron la boca delante de la tele y poco a poco se escandalizaron de una forma que podría confundirse con alegría: ¡hostia puta! Luego, ambos coincidieron en que sufrieron una pequeña arritmia, una bola en el pecho les apremió a los dos a coger los teléfonos y asegurarse de que sus conocidos estaban bien. Desafortunadamente, toda América sintió una arritmia y se apresuró a coger el teléfono; las líneas estaban saturadas. James se marchó a su casa un momento para compartir su conmoción con su familia y asegurarse -y asegurarles a ellos- de que todo andaba bien.
 
-Ni James ni Fabiana sintieron pena por América ni odio hacia los musulmanes. Ambos habían estado en la universidad -Fabiana a mitad de la carrera-, leían libros y ya habían dejado atrás -ella con el metabolismo de la madurez acelerado por la presencia adulta de él- las actitudes extremas e infantiles de la adolescencia.
+Ni James ni Fabiana sintieron pena por América ni odio hacia los musulmanes. Ambos habían estado en la universidad -Fabiana a mitad de la carrera-, leían libros y ya habían dejado atrás -ella con el metabolismo de la madurez acelerado por la presencia más adulta de él- las actitudes extremas e infantiles de la adolescencia.
 
 Por desgracia para ambos, poca gente a su alrededor se sentía como ellos. James trabajaba arreglando ordenadores y el resto de sus compañeros eran informáticos que solo eran informáticos -desayunaban y cenaban delante del ordenador, y todas sus formas de ocio orbitaban alrededor de esta máquina. Era el penúltimo año de universidad para Fabiana y, a veces, el ruido que producía el ganado de los alumnos de los primeros años contagiaba de una algarabía pre-violenta al espíritu del alumnado. Los novatos se aferraban a su recién ascenso a la universidad para creerse adultos, y para ello no dudaban en utilizar la cultura de un modo radical hasta convertirse en personas muy jóvenes, algo cultas y muy tontas. Protestaban por la guerra por la misma razón por la que muchos dejaban de comer carne o se apuntaban a ONG's: les hacía creer que eran mejores personas. Les hacía creer que sus espíritus engordaban. Era el modo occidental de hacer yoga, hasta que el verdadero yoga se convirtió en el modo occidental de hacer yoga.
 
