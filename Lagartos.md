@@ -3,7 +3,7 @@
 ### Iván Legrán
 
 <div align="justify">
-1
+## 1
 
 Disfrazado de esqueleto (un pijama negro al que su madre le había enganchado con la plancha unos adhesivos de huesos) James Chamberlain miró a Fabiana Marlowe y pensó: qué mal se le da.
 
@@ -59,9 +59,9 @@ James regresó con dos cervezas.
 
 -¿Qué?
 
-James le sonrió, él siempre pensaba que el lenguaje corporal es mucho más limitado y mucho menos importante de lo que los lingüistas y los psicólogos modernos pregonaban: entre otros muchos usos, James podía usar una sonrisa para decirle a alguien que era gilipollas, o como ahora, podía usar una sonrisa para anunciarle a alguien “voy a contarte algo familiar, bonito, podríamos decir que privado”.
+James le sonrió, él siempre pensaba que el lenguaje corporal es mucho más limitado y mucho menos importante de lo que los lingüistas y los psicólogos actuales pregonaban: entre otros muchos usos, James podía usar una sonrisa para decirle a alguien que era gilipollas, o como ahora, podía usar una sonrisa para anunciarle a alguien “voy a contarte algo familiar, bonito, podríamos decir que casi íntimo”.
 
--Una vez, cuando mi primo tenía 19 y yo 15... Bueno, él ya bebía cerveza, ¿vale? Se acercó a mí mientras yo probaba el ponche que mi padre estaba haciendo, porque aquel día venían unos amigos suyos a casa, ¿no? Entonces mi primo me dijo... Mierda, me estoy explicando fatal -Fabiana sonrió un poco haciéndose cargo de los nervios de James y se los disculpó. De hecho, a Fabiana le gustó disculparle esos nervios por dos motivos: en primer lugar, era como si de algún modo le estuviera diciendo “descuida, con tu pregunta rara te has ganado mi crédito y tienes un poco de margen para cagarla”, y, en segundo lugar, era como si le diera una ocasión para que ella se mostrase maternal y pudiera perdonar a James igual que perdonaría a un niño que se ha manchado la ropa jugando-. La cosa es que yo estaba probando el ponche y mi primo bebía cerveza y entonces me dijo:
+-Una vez, cuando mi primo tenía 19 y yo 15... Bueno, él ya bebía cerveza, ¿vale? Se acercó a mí mientras yo probaba el ponche que mi padre estaba haciendo, porque aquel día venían unos amigos suyos a casa, ¿no? Entonces mi primo me dijo... Mierda, me estoy explicando fatal -Fabiana sonrió un poco haciéndose cargo de los nervios de James y se los disculpó. De hecho, a Fabiana le gustó disculparle esos nervios por dos motivos: en primer lugar, era como si de algún modo le estuviera diciendo “descuida, con tu pregunta rara te has ganado mi atención y tienes un poco más de margen para cagarla”, y, en segundo lugar, era como si le diera una ocasión para que ella se mostrase maternal y pudiera perdonar a James igual que perdonaría a un niño que se ha manchado la ropa jugando-. La cosa es que yo estaba probando el ponche y mi primo bebía cerveza y entonces me dijo:
 
 -Esto es una cerveza. Lleva alcohol y es para adultos. Eso es ponche de mierda, lleva un poco de alcohol e indica que quieres ser adulto. Pero eres un enano.
 
@@ -81,11 +81,11 @@ Hablaron durante mucho rato y se dieron los móviles -es la manera que tienen lo
 
 -Sí. Se te da fatal ahuyentarlos.
 
-2
+## 2
 
-Después del accidente, y aunque se acostumbró asombrosamente bien a los hechos, James siempre piensa especialmente en aquellos primeros años con Fabiana. James ha empezado a soportar el presente gracias al pasado; a veces piensa que quizá es algo normal y que, en mayor o menor medida, a todo el mundo le ocurre lo mismo que a él. ¿Qué es envejecer si no?
+Después del accidente, y aunque se adaptó asombrosamente rápido a los hechos, James siempre piensa especialmente en aquellos primeros años con Fabiana. James ha empezado a soportar el presente gracias al pasado; a veces piensa que quizá es algo normal y que, en mayor o menor medida, a todo el mundo le ocurre lo mismo que a él. ¿Qué es envejecer si no?
 
-Lleva tantos años echando de menos aquellos años: la fiesta de Halloween en donde pudo conocer a Fabiana porque su primo Gary insistió en que salieran disfrazados. Esa primera vez en que la tomó de la mano porque sabía que ella le dejaría que la tomara de la mano. Descubrirle el sexo a ella, de algún modo, no fue una operación completamente egoísta; no solo quería acostarse con Fabiana, quería que ella se acostara por fin con alguien que le importara -ella siempre bromeaba con él diciéndole que su primera y única experiencia sexual previa a la primera que habían compartido juntos se podría calificar de “desvirgación anónima”-: para James, enseñarle el sexo con amor a su futura esposa fue una sensación parecida –pero, claro, muy magnificada- a cuando deseas que un amigo vea una de tus películas preferidas porque quieres que él también disfrute con aquello que te ha hecho disfrutar a ti, para que más tarde te dé la razón y las gracias. Fabiana dictaminó sobre el sexo con amor que era mejor y peor de lo que ella esperaba: “es mejor porque por fin lo he hecho realidad. Es peor porque, como el resto de cosas, siempre es más morboso imaginarlo que hacerlo”. James sabía que Fabiana lo decía sinceramente, sin pensar que él era un mal amante; lo sabía porque en una ocasión, después de ver un documental que trataba de desmitificar la ciudad de París enseñando su parte más sucia y menos melosa, su esposa le confesó: “es como cuando nos acostamos por primera vez; esta París más sucia y concreta me sigue pareciendo bonita, pero me gustaba más la París de mis sueños”.
+Lleva tantos años echando de menos aquellos años: la fiesta de Halloween en donde pudo conocer a Fabiana porque su primo Gary insistió en que salieran disfrazados. Esa primera vez en que la tomó de la mano porque sabía que ella le dejaría que la tomara de la mano. Descubrirle el sexo a ella, de algún modo, no fue una operación menos egoísta de lo imaginable; no solo quería acostarse con Fabiana, quería que ella se acostara por fin con alguien que le importara -ella siempre bromeaba con él diciéndole que su primera y única experiencia sexual previa a la que habían compartido juntos se podría calificar de “desvirgación anónima”-: para James, enseñarle el sexo con amor a su futura esposa fue una sensación parecida –pero, claro, muy magnificada- a cuando deseas que un amigo vea una de tus películas preferidas porque quieres que él también disfrute con aquello que te ha hecho disfrutar a ti, para que más tarde te dé la razón y te esté agradecido. Fabiana dictaminó sobre el sexo con amor que era mejor y peor de lo que ella esperaba: “es mejor porque por fin lo he hecho realidad. Es peor porque, como el resto de cosas, siempre es más morboso imaginarlo que hacerlo”. James sabía que Fabiana lo decía sinceramente, sin pensar que él era un mal amante; lo sabía porque en una ocasión, después de ver un documental que trataba de desmitificar la ciudad de París enseñando su parte más sucia y menos melosa, su esposa le confesó: “es como cuando nos acostamos por primera vez; esta París más sucia y concreta me sigue pareciendo bonita, pero me gustaba más la París de mis sueños”.
 
 Aquellos años fueron los más fotogénicos de la vida de James Chamberlain. Era su pasado más guapo; no solo él y su novia eran jóvenes y guapos (aquellos años le parecieron tan tiernos que tenía un recuerdo totalmente higiénico de ellos -años sin sudor y sin mocos, evocaba a veces James-), es que todas las sensaciones que fueron destapando juntos fueron las mejores de su vida. El propio James se confesaba en secreto que ser joven había sido mejor que tener un hijo.
 
@@ -97,12 +97,11 @@ Siendo obligada a entregar su abrigo a la abuela de James, Fabiana comprendió q
 
 -¿Viven todos tus abuelos?
 
--Sí, todavía tengo a mis dos abuelos y a mis dos abuelas.
+-Sí, tengo a mis cuatro abuelos vivos.
 
-Entonces, la vieja sonrió y le dijo algo a Fabiana que, desde aquel momento, debía empezar a considerar que tenía 3 abuelas.
+-¿Cuatro? Cuatro no, ahora tienes dos abuelos, y tres abuelas.
 
 Debido a lo poco que se conocían su abuela y su novia -y también a lo poco que él conocía a su propia novia-  ese gesto de ternura, esa adopción instantánea, le pareció casi brutal y agresiva.
-
 
 Pero no era una agresión ni una brutalidad. La propia Fabiana, apercibida del rictus preocupado de James, tranquilizó más tarde a su joven novio diciéndole que el cariño casi abusivo de su abuela le gustaba y no se le hacía empalagoso.
 
@@ -116,20 +115,20 @@ La mirada de James buscó el asiento vacío -el plato sin comida, la servilleta 
 
 -Y a mí -soltó Fabiana intentando ser jovial. Después, suavizó la voz y apoyó la mejilla sobre el hombro de quien estaba a punto de ser su marido-, y a ti también, la queríamos mucho.
 
--Sí -afirmó James nostálgicamente-, o al menos durante casi siempre. Al final había que echarle mucha memoria para quererla. El Alzheimer es muy ingrato -James encontró una salida divertida para aquel momento triste:
+-Sí -afirmó James con nostalgia-, o al menos durante casi siempre. Al final había que echarle mucha memoria para quererla. El Alzheimer es muy ingrato -James encontró una salida divertida para aquel momento triste:
 
 -¿Te imaginas que viene?
 
 Fabiana, que ya conocía perfectamente el humor de James después de 10 años, se alzó y le miró con el rostro iluminado por una sonrisa.
 
--¡Hala! Sería súper guapo. Así descompuesta, comiendo al lado de nosotros... con moscas alrededor de ella y gusanitos saliéndole por las orejas… ¡Viva! O sea… ¡Muerta!
+-¡Hala! Sería súper guapo. Así descompuesta, comiendo al lado de nosotros... con moscas alrededor de ella y gusanitos saliéndole por las orejas y por los ojos… ¡Viva! O sea… ¡Muerta!
 
 -¡Sí! Y además ahora los zombies están de moda. Y... bueno, no sé, mucha gente se traerá su coche, así que podemos encalomársela a cualquiera de la familia para que después del convite la devuelva al cementerio.
 
 
 
 
-3
+## 3
 
 
 
