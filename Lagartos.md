@@ -178,12 +178,12 @@ James y Fabiana estaban en casa de esta, solos, viendo la tele, cuando se derrum
 
 Ni James ni Fabiana sintieron pena por América ni odio hacia los musulmanes. Ambos habían estado en la universidad -Fabiana a mitad de la carrera-, leían libros y ya habían dejado atrás -ella con el metabolismo de la madurez acelerado por la presencia más adulta de él- las actitudes extremas e infantiles de la adolescencia.
 
-Por desgracia para ambos, poca gente a su alrededor se sentía como ellos. James trabajaba arreglando ordenadores y el resto de sus compañeros eran informáticos que solo eran informáticos -desayunaban y cenaban delante del ordenador, y todas sus formas de ocio orbitaban alrededor de esta máquina. Era el penúltimo año de universidad para Fabiana y, a veces, el ruido que producía el ganado de los alumnos de los primeros años contagiaba de una algarabía pre-violenta al espíritu del alumnado. Los novatos se aferraban a su recién ascenso a la universidad para creerse adultos, y para ello no dudaban en utilizar la cultura de un modo radical hasta convertirse en personas muy jóvenes, algo cultas y muy tontas. Protestaban por la guerra por la misma razón por la que muchos dejaban de comer carne o se apuntaban a ONG's: les hacía creer que eran mejores personas. Les hacía creer que sus espíritus engordaban. Era el modo occidental de hacer yoga, hasta que el verdadero yoga se convirtió en el modo occidental de hacer yoga.
+Por desgracia para ambos, no toda la gente de su alrededor se sentía como ellos. James trabajaba arreglando ordenadores y el resto de sus compañeros eran informáticos que solo eran informáticos -desayunaban y cenaban delante del ordenador, y todas sus formas de ocio orbitaban alrededor de esta máquina. Era el penúltimo año de universidad para Fabiana y, a veces, el ruido que producía el ganado de los alumnos de los primeros años contagiaba de una algarabía pre-violenta al espíritu del alumnado. Los novatos se aferraban a su recién ascenso a la universidad para creerse adultos, y para ello no dudaban en utilizar la cultura de un modo radical hasta convertirse en personas muy jóvenes, algo cultas y muy tontas. Protestaban por la guerra por la misma razón por la que muchos dejaban de comer carne o se apuntaban a ONG's: les hacía creer que eran mejores personas. Les hacía creer que sus espíritus engordaban. Era el modo occidental de hacer yoga, al menos hasta que el verdadero yoga se convirtió en el modo occidental de hacer yoga.
 
 
 
 
-5
+## 5
 
 
 
