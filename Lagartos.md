@@ -205,7 +205,7 @@ Durante el café, aquel chico, Steven, intentó reanimar las ascuas de una vieja
 
 -Pues... el otro día leí un poco sobre aquello que dijo el profesor sobre que traducir es traicionar. Los traductores, ya sabéis... –Miró a James con una mirada que quería decirle “ya sé que tú no sabes...”- traicionan al texto. Dañan al original.
 
-Fabiana tomó aire para decir algo pero James la cortó y soltó un trabucazo.
+Fabiana tomó aire para decir algo, pero James la cortó y soltó un trabucazo.
 
 -O sea que mejor no leer textos traducidos. Mejor limitarse a leer cosas de América y de Inglaterra, ¿no? Nada de Cervantes ni de Flaubert.
 
@@ -213,15 +213,15 @@ Fabiana tomó aire para decir algo pero James la cortó y soltó un trabucazo.
 
 -Claro. Todo el mundo ha leído la fantástica novela de Puzo titulada “El Padrino”. La película apenas se conoce.
 
-Steven se sintió bloqueado y James, que por ser algo más adulto que él -solo dos o tres años-, sentía una cierta paternidad hacia el chaval que lo llevaba a experimentar piedad, decidió que lo mejor era evaporar la tensión del momento.
+Steven se quedó helado y James, que por ser algo más adulto que él -solo dos o tres años-, sentía una cierta paternidad hacia el chaval que lo llevaba a experimentar piedad, decidió que lo mejor era evaporar la tensión del momento.
 
--Es broma, hombre. Pero para que veas... No sé. Me da la sensación de que pontificas mucho. No puedes ser tan categórico. Tan esto es así y esto es asá. De todo hay contraejemplos.
+-Es broma, hombre. Pero para que veas... No sé. No se puede pontificar así. No puedes ser tan categórico. Tan esto es así y esto es asá. De todo hay contraejemplos.
 
-Fabiana miraba a James con un embeleso mal disimulado; cotejar a su novio con un estudiante en activo estaba haciendo que revalorizara a su hombre y la estaba hinchando secretamente de orgullo. Steven se rascó la mandíbula azul -una calibrada dejadez en el afeitado- y volvió a la carga.
+Fabiana miraba a James con un embeleso mal disimulado; cotejar a su novio con un estudiante en activo estaba haciendo que revalorizara a su hombre y la estaba hinchando secretamente de orgullo. Steven se rascó la mandíbula azul -un calibrado abandono en el afeitado- y volvió a la carga.
 
--¿Pero entonces tú no crees que, por ejemplo, la poesía no pierde muchísimo si se la traduce? ¿De verdad crees que es lo mismo la musicalidad, la calidad retórica y el juego de palabras de un original al de una traducción? -Steven envenenó la frase, la malintencionó para que intentara enfrascar la actitud de James en una actitud ridícula, poco sabia y antiacadémica. Fabiana miró a James con complicidad, como si quisiera pactar con él que Steven era un imbécil. James dio un sorbo de café y sostuvo la taza entre las manos sonriendo un poco, casi como si intentara proyectar el hecho de que él llevaba más años que Steven cogiendo tazas de café. Después, para darse un poco más de tiempo antes de contestar, miró por la ventana y se dio cuenta de que la lluvia había arreciado. En la calzada el agua se arremolinaba en las bocas de alcantarilla. Muchas veces, cuando había un sol intenso o una lluvia intensa -o sea, cuando la naturaleza quería subrayar que su fuerza no podía ser expulsada de las ciudades- James se acordaba de la voz poética de Walt Whitman.
+-¿Pero entonces tú no crees que, por ejemplo, la poesía no pierde muchísimo si se la traduce? ¿De verdad crees que es lo mismo la musicalidad, la calidad retórica y el juego de palabras de un original al de una traducción? -Steven envenenó la frase, la malintencionó para que intentara enfrascar la actitud de James en una actitud ridícula, poco sabia e infantiloidemente rebelde. Fabiana miró a James con complicidad, como si quisiera acordar tácitamente con él que Steven era un imbécil. James dio un sorbo de café y sostuvo la taza entre las manos sonriendo un poco, casi como si intentara proyectar el hecho de que él llevaba más años que Steven cogiendo tazas de café. Después, para darse un poco más de tiempo antes de contestar, miró por la ventana y se dio cuenta de que la lluvia había arreciado. En la calzada el agua se arremolinaba en las bocas de alcantarilla. Muchas veces, cuando había un sol intenso o una lluvia intensa -o sea, cuando la naturaleza quería subrayar que su fuerza no podía ser expulsada de las ciudades- James se acordaba de la voz poética de Walt Whitman.
 
--Así que para ti ¿la poesía está en los adornos y no en el significado? Para ti ¿la poesía se queda en... -James buscó un símil utilitario- en el coladero de la traducción, siempre? La poesía es, para mí, precisamente lo que sí puede traducirse. -James empezó a pensar así a los 19 años, mientras leía Hojas de hierba. Cuando devoró todo el poemario y volvió a releer los prefacios del propio Whitman, se dio cuenta de que la lectura de Hojas de hierba había hecho que cristalizara en él la conciencia de que la poesía era un territorio libre, un laboratorio en donde el poeta debe experimentar con su intimidad. James había llegado a formular para sí mismo que la poesía era un ensayo sentimental; una herramienta de conocimiento-. La poesía está en el significado, en el sentido, tío, en su capacidad para hacer... construir verdad o sinceridad, llámalo como quieras. Lo demás son juegos de malabares con el idioma, trucos, particularidades de una lengua: “Soy el poeta de la mujer y del hombre. Y digo que es tan digno ser mujer como ser hombre. Y digo que no hay nada tan noble como ser la madre de los hombres”. ¿Crees que si eso se traduce al francés o al chino deja de ser poesía?
+-Así que para ti ¿la poesía está en los adornos y no en el significado? Para ti ¿la poesía se queda en... -James buscó un símil utilitario- en el coladero de la traducción, siempre? La poesía es, para mí, precisamente lo que sí puede traducirse. -James empezó a pensar así a los 19 años, mientras leía Hojas de hierba. Cuando devoró todo el poemario y volvió a releer los prefacios del propio Whitman, se dio cuenta de que la lectura de Hojas de hierba había hecho que cristalizara en él la conciencia de que la poesía era un territorio libre, un laboratorio en donde el poeta debe ensayar con su intimidad. James había llegado a formular para sí mismo que la poesía era un ensayo sentimental; una herramienta de conocimiento-. La poesía está en el significado, en el sentido, tío, en su capacidad para hacer... construir verdad o sinceridad, llámalo como quieras. Lo demás son juegos de malabares con el idioma, trucos, particularidades de una lengua: “Soy el poeta de la mujer y del hombre. Y digo que es tan digno ser mujer como ser hombre. Y digo que no hay nada tan noble como ser la madre de los hombres”. ¿Crees que si eso se traduce al francés o al chino deja de ser poesía?
 
 Steven constriñó su cara y se la dedicó a su taza de café. Si hubiera sido una persona más adulta, casada y tuviera por costumbre maltratar a su mujer -pensó James- ahora mismo iría a su casa a pegar a su consorte. Sin embargo, el chaval, para alegría de James, que no conseguía desprenderse de esa sensación de paternidad, tuvo una reacción prometedoramente madura; había unos gramos de humildad y de progreso en su respuesta.
 
@@ -236,7 +236,7 @@ Como James había vencido a Steven, se sintió con libertad para aniñarse y fan
 
 -Lo siento. Bueno, verás… hay gente, sobre todo en las carreras de Humanidades, que usa los libros para ligar. Repiten chorradas que leen y las tías se sienten como si estuvieran ante una especie de Playboy intelectual. Gary y yo llamábamos a esos tíos de la uni “Lectorescazacoños”.
 
-Fabiana tocó el brazo de James para que se callara; le estaba pareciendo que su novio había tomado la decisión de empeñarse en arruinar la sensación de orgullo que acaba de experimentar hacia él en la cafetería. Aun así, James, que leía perfectamente en las reacciones de Fabiana, quiso rematar el comentario:
+Fabiana tocó el brazo de James para que se callara; le estaba pareciendo que su novio había tomado la decisión de empeñarse en arruinar la sensación de orgullo que acaba de experimentar hacia él en la cafetería. Aun así, James, que leía perfectamente en las reacciones de Fabiana, no pudo resistirse a rematar el comentario:
 
 -Luego están los hombres del gimnasio. Esos que les preguntas: ¿Adónde vas? Y te dicen: al gimnasio. ¿Y de dónde vienes? Y te dicen: del gimnasio. A esos, claro, los llamábamos los “Gimnastaslevantacoños”.
 
@@ -248,7 +248,7 @@ Fabiana tocó el brazo de James para que se callara; le estaba pareciendo que su
 
 
 
-6
+## 6
 
 
 
