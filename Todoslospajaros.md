@@ -23535,7 +23535,7 @@ la totalidad de este fuego
 y tirarlo a la basura.
 
 Soy un hijo de Adán
-y la culpa es tuya,
+y la culpa es tuya
 por hacerme sentir
 que me sobra una costilla
 y me falta una compañera.
@@ -23545,7 +23545,7 @@ con lo tranquilo que yo estaba
 pensando que todos somos
 perfectamente reemplazables.
 Que todas las personas
-somos solo estúpidas variaciones
+somos solo estúpidas variantes
 de un pequeño grupo
 de estereotipos.
 Y, sin embargo, aquí estoy
