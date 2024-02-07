@@ -23513,3 +23513,43 @@ la cultura
 si no puedo convertirla
 en una hogaza de pan
 que compartir contigo.
+
+
+
+
+
+## Hijo de Adán
+
+Por supuesto que soy un Hijo de Adán.
+¿Acaso no tengo que sudar
+para ganarme el pan
+que me mantiene vivo?
+¿Acaso
+no camino encorvado,
+después de que me hayan expulsado
+del paraíso?
+
+Lo único que quiero
+es arrancarme
+la totalidad de este fuego
+y tirarlo a la basura.
+
+Soy un hijo de Adán
+y la culpa es tuya,
+por hacerme sentir
+que me sobra una costilla
+y me falta una compañera.
+
+Maldita seas,
+con lo tranquilo que yo estaba
+pensando que todos somos
+perfectamente reemplazables.
+Que todas las personas
+somos solo estúpidas variaciones
+de un pequeño grupo
+de estereotipos.
+Y, sin embargo, aquí estoy
+enfangado
+en el drama fundamental
+de que solamente tú
+seas tú.
