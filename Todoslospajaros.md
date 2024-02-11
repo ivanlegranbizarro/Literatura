@@ -23640,7 +23640,7 @@ y al amigo de Mark.
 
 Es en ese momento,
 tras ingerir el primer trago,
-es cuando ambos
+cuando ambos
 se convierten en nuestros Tristán e Isolda:
 dos animales
 que no pueden separase,
