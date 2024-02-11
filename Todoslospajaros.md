@@ -23576,3 +23576,95 @@ con las persianas bajadas,
 para que Taylor Swift
 no pueda nunca
 envolverme entre sus garras.
+
+
+
+
+## Tristán e Isolda
+
+A mí no me encantó
+ir a la Universidad.
+Lo que me gustó fue tener 18 años
+y conocer
+a Santi y a Ernesto.
+
+El resto
+fue una mediocridad; montones
+de normalidad
+a un precio muy elevado.
+
+Sin embargo,
+recuerdo una clase en particular
+que me pareció deslumbrante.
+Nora Catelli
+nos hizo leer para Literatura Universal
+Tristán e Isolda.
+
+Mark, rey de Cornualles,
+no encuentra esposa,
+así que le pide a su amigo Tristán
+que atraviese el mar
+para ayudarle a encontrar
+una consorte.
+
+Tristán va a parar a Irlanda
+y allí se encuentra, de rebote,
+con que el gigante Morholt
+está exigiendo un tributo anual de niños
+para comérselos vivos.
+
+Morholt es derrotado por Tristán
+y los reyes de Irlanda,
+como premio, le entregan a su hija Isolda
+para que se despose con Mark.
+
+La criada de Isolda,
+temerosa de que a su ama
+le aguarde un destino infeliz
+junto a un hombre que no le gusta,
+le prepara un filtro mágico
+para que los esposos
+se enamoren el uno del otro
+al tomarlo.
+
+En el barco que ha de llevarlos
+de Irlanda a Cornualles,
+para festejar la victoria de su amo,
+el escudero de Tristán,
+en lugar de servir vino de la bodega,
+se equivoca
+y sirve por error
+el filtro de amor
+a la princesa de Irlanda
+y al amigo de Mark.
+
+Es en ese momento,
+tras ingerir el primer trago,
+es cuando ambos
+se convierten en nuestros Tristán e Isolda:
+dos animales
+que no pueden separase,
+porque son víctimas
+de uno de esos amores
+que te empañan las gafas
+cuando llegan a tu vida.
+
+'¿Les ha gustado?',
+nos preguntó Nora Catelli.
+Muchos a alumnos
+alzaron las manos
+para responder que no.
+Que aquello no era amor,
+que era algo artificial:
+que Tristán e Isolda
+se habían enamorado
+por beberse un filtro mágico
+sin querer.
+Aquello no era amor
+porque era un accidente.
+
+Fue entonces, cuando la profesora
+repuso:
+'Quizá aquello
+era amor
+porque era un accidente'.
