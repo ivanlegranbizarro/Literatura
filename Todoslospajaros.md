@@ -23574,5 +23574,5 @@ No temas nada,
 he empezado a dormir
 con las persianas bajadas,
 para que Taylor Swift
-nunca pueda
+no pueda nunca
 envolverme entre sus garras.
