@@ -23568,7 +23568,7 @@ se me llevaba.
 ¿Qué puedo decir?
 ¿Cómo te explico
 que no pienso dejarme
-secuestrar por esa harpía?
+secuestrar por semejante harpía?
 
 No temas nada,
 he empezado a dormir
