@@ -23553,3 +23553,26 @@ enfangado
 en el drama fundamental
 de que solamente tú
 seas tú.
+
+
+
+
+
+## Pacificación
+
+El otro día me contaste
+que habías soñado
+con que Taylor Swift
+se me llevaba.
+
+¿Qué puedo decir?
+¿Cómo te explico
+que no pienso dejarme
+secuestrar por esa harpía?
+
+No temas nada,
+he empezado a dormir
+con las persianas bajadas,
+para que Taylor Swift
+no pueda nunca
+envolverme entre sus garras
