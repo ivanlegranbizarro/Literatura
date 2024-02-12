@@ -23620,8 +23620,8 @@ para que se despose con Mark.
 
 La criada de Isolda,
 temerosa de que a su ama
-le aguarde un destino infeliz
-junto a un hombre que no le gusta,
+le aguarde un infeliz futuro
+junto a un hombre que no es de su gusto,
 le prepara un filtro mágico
 para que los esposos
 se enamoren el uno del otro
@@ -23659,8 +23659,8 @@ que era algo artificial:
 que Tristán e Isolda
 se habían enamorado
 por beberse un filtro mágico
-sin querer.
-Aquello no era amor
+sin querer;
+aquello no era amor
 porque era un accidente.
 
 Fue entonces, cuando la profesora
