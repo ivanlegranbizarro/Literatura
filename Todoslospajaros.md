@@ -23613,7 +23613,7 @@ con que el gigante Morholt
 está exigiendo un tributo anual de niños
 para comérselos vivos.
 
-Morholt es derrotado por Tristán
+Morholt es derrotado por Tristán,
 y los reyes de Irlanda,
 como premio, le entregan a su hija Isolda
 para que se despose con Mark.
