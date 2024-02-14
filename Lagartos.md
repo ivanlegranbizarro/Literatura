@@ -450,9 +450,9 @@ A Charles le fascinaba ese paso de la irregularidad de la naturaleza a la regula
 
 A los 24 años lo dejó con su segunda novia, Susan. (Cuando le habló por primera vez a su padre de ella, a James se le iluminó media cara y la otra media se le ensombreció y exclamó: “¡Anda, yo también tuve una Susan!).
 
- A Charles, Susan le atraía mucho pero se le antojaba demasiado felina; peleas, celos, distanciamiento ... y luego estallidos de euforia en los que ella reclamaba la atención de Charles con apasionada desesperación. El chico tuvo que admitir para sí mismo que la violencia de su relación con Susan le atraía de un modo oscuro. Se sentía importante a su lado. Sentía que los dos eran importantes. A veces ella era una enemiga, otras una madre y otras solo máquina en donde convertir la violencia en sexo. ¿Pero no tenían que ser así todos los principios? ¿No era con el transcurso de los años cuando los amantes se convertían en oficinistas que segregaban oxitocina y se reían con complicidad de viejos chistes que la vida les había llevado a elaborar juntos? Charles no tenía aún la profundidad de alma para percatarse de una de las paradojas más horribles de la psique humana: las personas son capaces de cotidianizar cualquier cosa, tanto es así que incluso las relaciones más tóxicas generan dependencias difíciles de cortar.
+ A Charles, Susan le atraía mucho pero se le antojaba demasiado felina; peleas, celos, distanciamiento ... y luego estallidos de euforia en los que ella reclamaba la atención de Charles con apasionada desesperación. El chico tuvo que admitir para sí mismo que la violencia de su relación con Susan le atraía de un modo oscuro. Se sentía importante a su lado. Sentía que los dos eran importantes. A veces ella era una enemiga, otras una madre y otras solo una máquina en donde convertir la violencia en sexo. ¿Pero no tenían que ser así todos los principios? ¿No era con el transcurso de los años cuando los amantes se convertían en oficinistas que segregaban oxitocina y se reían con complicidad de viejos chistes que la vida les había llevado a elaborar juntos? Charles no tenía aún la profundidad de alma para percatarse de una de las paradojas más horribles de la psique humana: las personas son capaces de cotidianizar cualquier cosa, tanto es así que incluso las relaciones más tóxicas generan dependencias difíciles de cortar.
 
-Pero Charles estaba cansado. Lentamente se había ido inmunizando frente a las agitaciones de su relación con Susan. Además, existía también cierta sensación de falta de misterio, de meta alcanzada demasiado, como si Ulises se hubiera encontrado con Itaca a la vuelta de la esquina. “Ya está el amor? ¿Es Susan y ya está? ¿Debo concentrarme ya solo en el resto de metas de mi vida? ¿Nunca más podré flirtear con nadie?
+Pero Charles estaba cansado. Lentamente se había ido inmunizando frente a las agitaciones de su relación con Susan. Además, existía también cierta sensación de falta de misterio, de meta alcanzada demasiado pronto, como si Ulises se hubiera encontrado con Ítaca a la vuelta de la esquina. “Ya está el amor? ¿Es Susan y ya está? ¿Debo concentrarme ya solo en el resto de metas de mi vida? ¿Nunca más podré flirtear con nadie?
 
 Charles tuvo el tacto de esperar hasta que empezara el verano y a Susan le dieran vacaciones para dejarla.
 
@@ -462,9 +462,9 @@ Charles tuvo el tacto de esperar hasta que empezara el verano y a Susan le diera
 
 -Te vuelvo loco... ¿Eso es malo? Eso es que hay chispa...
 
--No. Las chicas difíciles, y tú lo eres, me atraen, pero me cansan. Me atrae no entender por qué eres tan exigente y me atrae que no me entiendas. Pero todo eso se ha terminado convirtiendo en agobio. Siento que a tu lado me tengo que poner la corbata; esconder cosas, ser mejor de lo que soy. No me siento libre contigo. Me pides más de lo que yo te pido a ti, y tengo la sensación de que tú eres menos comprensiva conmigo de lo que yo lo soy contigo. No eres mi amiga, eres una enemiga que me atrae. Ya viví eso con Julie. Yo quiero una compañera. Una amiga a la que comerle las tetas y a la que poder explicarle: Eh, mira... en mi facultad hay una que está súper buena. Y entonces, que ella -Charles cometió el error de sonreír bobaliconamente, como si de verdad contemplara a su futura novia. Susan empezó a desquiciarse. Charles estaba siendo muy abstracto y ella sabía que en la vida, realmente, todo lo bueno y lo malo se lleva a cabo por razones concretas.
+-No. Las chicas difíciles, y tú lo eres, me atraen, pero me cansan. Me atrae no entender por qué eres tan exigente y me atrae que no me entiendas. Pero todo eso se ha terminado convirtiendo en agobio. Siento que a tu lado me tengo que poner la corbata; esconder cosas, ser mejor de lo que soy. No me siento libre contigo. Me pides más de lo que yo te pido a ti, y tengo la sensación de que tú eres menos comprensiva conmigo de lo que yo lo soy contigo. No eres mi amiga, eres una enemiga que me atrae. Ya viví eso con Julie. Yo quiero una compañera. Una amiga a la que comerle las tetas y a la que poder explicarle: Eh, mira... en mi facultad hay una que está súper buena. Y entonces, que ella me escu... -Charles cometió el error de sonreír bobaliconamente, como si de verdad contemplara a su futura novia. Susan empezó a desquiciarse. Charles estaba siendo muy abstracto y ella sabía que en la vida, realmente, todo lo bueno y lo malo se lleva a cabo por razones concretas.
 
--¿Qué mierda de excusa es esa? ¿Me estás describiendo a la muñeca hinchable que vas a pedirle a Santa Claus? Yo soy una persona real, y nadie en el puto mundo real va a ser tu novia y tu amiga al mismo tiempo.
+-¿Qué mierda de excusa es esa? -cortó Susan- ¿Me estás describiendo a la muñeca hinchable que vas a pedirle a Santa Claus? Yo soy una persona real, y nadie en el puto mundo real va a ser tu novia y tu amiga al mismo tiempo.
 
 Charles sonrió ácidamente y notó como la sabiduría que había recolectado tras el sufrimiento de perder a Julie le subía hasta el rostro.
 
@@ -500,7 +500,7 @@ Al cabo de un rato intrascendental para él y penoso para ella, Charles abandon�
 
 
 
-9
+## 9
 
 
 
