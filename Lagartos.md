@@ -325,7 +325,7 @@ El día del bautizo, cuando el padre Thomson roció con el hisopo la cabecita de
 
 
 
-7
+## 7
 
 
 
@@ -333,7 +333,7 @@ James le endilgó la primera mitad la niñez de Charles a Fabiana. No se trataba
 
 Para empezar, James había empezado a percibir durante los últimos años, ya incluso desde antes del embarazo, que Fabiana comenzaba a reaccionar inconscientemente en contra de la mutilación a la que la estaba sometiendo. Ella había empezado a insistir en fregar los platos, usar la lavadora y en mantener la casa impoluta. Había comenzado también su metamorfosis: de experta usuaria del microondas y amazona de la comida precocinada, se había iniciado en la magia de la cocina. Campo en cual llegaría a ser una maga muy docta, capaz de hechizar a James con poderosos flanes y arcanos pasteles de carne.
 
-Estupendo: manejar una casa, lejos de convertir a Fabiana en una matriarca independiente y crítica, la habían convertido en una joven subyugada sin tiempo ni ganas para hacerse preguntas. ¿Cómo podía pensar James que no sería así? Y sin embargo no las tenía todas consigo… ¿Y si precisamente era la casa lo que comenzaba a emponzoñarla con la idea de escapar? ¿Tenía Fabiana amigas peligrosas? ¿Chicas que llegaran al final del día a casa con dolor de pies, y que al enterarse de que Fabiana se limitaba a ejercer de ama de casa, fueran a envenenarla con que eso era puro machismo? ¿Pero entonces no podría Fabiana replicarles que precisamente James siempre había querido extralimitarse intentando aglutinar él muchas de las tareas domésticas? ¿Pero y qué había de los libros? ¿No llegaría el día en que Patricia Highsmith, Virginian Woolf o Simon de Beaouvoir escupirían en la cara de su Fabiana? ¿Las había releído desde su época en la universidad?
+Estupendo: manejar una casa, lejos de convertir a Fabiana en una matriarca independiente y crítica, la habían convertido en una joven subyugada sin tiempo ni ganas para hacerse preguntas. ¿Cómo podía pensar James que no sería así? Y, sin embargo, no las tenía todas consigo… ¿Y si precisamente era la casa lo que comenzaba a emponzoñarla con la idea de escapar? ¿Tenía Fabiana amigas peligrosas? ¿Chicas que llegaran al final del día a casa con dolor de pies, y que al enterarse de que Fabiana se limitaba a ejercer de ama de casa, fueran a envenenarla con que eso era puro machismo? ¿Pero entonces no podría Fabiana replicarles que, precisamente, James siempre había querido extralimitarse intentando aglutinar él muchas de las tareas domésticas? ¿Pero y qué había de los libros? ¿No llegaría el día en que Patricia Highsmith, Virginian Woolf o Simon de Beaouvoir escupirían en la cara de su Fabiana? ¿Las había releído desde su época en la universidad?
 
 Por eso James quería que llegara el bebé; cuidar de Charles la mantendría ocupada de verdad; la alejaría definitivamente del mundo laboral y del sabor del dinero ganado por uno mismo. Ese sabor que te conducía a menudo a querer pagar con alguien tu cansancio y tus frustraciones generadas en el mundo del dinero.
 
@@ -357,7 +357,7 @@ Una noche de verano, mientras Charles se metía en la cama, James se percató de
 
 -Vale.
 
-James decidió que no debía forzar aparentemente a Charles, eso provocaría rechazo y testarudez en el niño. Lo que había que hacer era manejarlo subterráneamente, jugar con los temores del crío. Al día siguiente no le dijo nada sobre que se quitara los calcetines antes de meterse en la cama. Le contó una historia y luego le preguntó que qué tal le iba en las clases de piscina. Por último, después de despedirse de Charles con un beso de buenas noches y de apagar la luz, justo antes de abandonar el cuarto, James soltó una frase siniestra camuflada de frase infantil:
+James decidió que no debía forzar aparentemente a Charles, eso provocaría rechazo y testarudez en el niño. Lo que había que hacer era manejarlo soterradamente, jugar con los temores del crío. Al día siguiente no le dijo nada sobre que se quitara los calcetines antes de meterse en la cama. Le contó una historia y luego le preguntó que qué tal le iba en las clases de piscina. Por último, después de despedirse de Charles con un beso de buenas noches y de apagar la luz, justo antes de abandonar el cuarto, James soltó una frase siniestra camuflada de frase infantil:
 
 -Ah. A ver si mañana te gusta la silla de ruedas que te he pedido. Es muy chula.
 
@@ -400,7 +400,7 @@ Charles no ventilaba con ansiedad, pero sí respiraba de un modo evidente, de un
 
 
 
-8
+## 8
 
 
 
@@ -410,7 +410,7 @@ Le parece que sus padres simplemente no se llevan mal. Nunca les ha visto pelear
 
 A los 22 años, después de que su primera relación seria -larga- fracasara y estuviera comenzando un segundo noviazgo, Charles hizo una mejor valoración de sus padres: prefieren quererse con gestos pequeños. A ellos nunca les fastidia su relación, les fastidian otras cosas: el trabajo, la complicada finalización de la abuela Grace por culpa del Alzheimer -la madre de James-, la falta de dinero y la incapacidad de su madre para encontrar trabajo.
 
-Charles por fin intuye que sus padres no eran muy individuales: se necesitaban -especialmente, suponía él, su madre a su padre. Ofrecían una falsa imagen de independencia, pero la verdad es que ambos necesitaban girar alrededor del otro. Fabiana podía marcharse una semana a Italia a visitar a sus padres -cosa que ya no hacía desde hacía años porque ellos habían dejado de pagarle el vuelo- y entonces James no la echaría mucho de menos, pero sí que necesitaba que ella lo llamara regularmente, que se mostrara solílicita desde su lejanía; que cogiera el teléfono cuando a él le diera por llamarla o que aceptara enviarle una foto de sus tetas, cuando James le insinuara que necesitaba machacársela pensando en ella. Charles concluyó que sus padres se necesitaban de un modo desapasionado -y eso para Charles empezaba a ser visto como un logro hermoso. Como esos vidrios de botella que el mar, por la acción del tiempo, le devuelve a la arena con los cantos rodados y que todos los niños creen siempre que deben ser algún tipo de piedra preciosa.
+Charles por fin intuye que sus padres no eran muy individuales: se necesitaban -especialmente, suponía él, su madre a su padre. Ofrecían una falsa imagen de independencia, pero la verdad es que ambos necesitaban girar alrededor del otro. Fabiana podía marcharse una semana a Italia a visitar a sus padres -cosa que ya no hacía desde hacía años, porque ellos habían dejado de ofrecerse a pagarle el vuelo- y entonces James no la echaría mucho de menos, pero sí que necesitaba que ella lo llamara regularmente, que se mostrara solícita desde su lejanía; que cogiera el teléfono cuando a él le diera por llamarla o que aceptara enviarle una foto de sus tetas, cuando James le insinuara que necesitaba machacársela pensando en ella. Charles concluyó que sus padres se necesitaban de un modo desapasionado -y eso para Charles empezaba a ser visto como un logro hermoso. Como esos vidrios de botella que el mar, por la acción del tiempo, le devuelve a la arena con los cantos rodados y que todos los niños creen siempre que deben ser algún tipo de piedra preciosa.
 
 La primera novia de Charles se llamaba Julie. Julie era una de esas chicas preciosas que se dedican a tener el pelo mojado y a buscar hombres que las protejan de cosas que no tendrían por qué hacerles daño.
 
