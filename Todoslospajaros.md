@@ -23717,4 +23717,4 @@ Para mí, comenzará,
 lo más tarde,
 cuando Gemma me pida
 que le abra
-una lata de tomate
+una lata de tomate.
