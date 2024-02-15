@@ -616,13 +616,13 @@ Fabiana abrió la boca y tomó aire de una forma áspera. Charles empezó a esti
 
 -Porque así solo tenía cáncer cuando estaba sola. Solo lo sabía yo. Podía tomarme un café contigo y hablar de libros o de lo que sea y en ese momento no estaba enferma. Yo no necesitaba apoyo, necesitaba normalidad. No sé... es como cuando lo dejas con el novio y te da pereza contárselo a tu madre y a tus amigos porque sabes que te harán demasiadas preguntas.
 
-Fabiana no dijo nada. Kathy sonrió mientras miraba a Charles tirando del pelo a su madre. Para Charles no había nadie enfermo en aquel salón. Nadie había dado la noticia de que se estaba muriendo. En cambio, el pelo castaño y brillante de su madre estaba ahí, ante él, asible. Fabiana reaccionó pensando que quizá a su amiga le distraería coger al niño. Se lo ofreció con un leve estiramiento de brazos y con una mirada. Kathy dijo enseguida “Ay, sí. Dámelo. Qué guapo está. ¿Cuánto pesa?”
+Fabiana no dijo nada. Kathy sonrió mientras miraba a Charles tirando del pelo a su madre. Para Charles no había nadie enfermo en aquel salón. Nadie había dado la noticia de que se estaba muriendo. En cambio, el pelo castaño y brillante de su madre estaba ahí, ante él, asible. Fabiana reaccionó pensando que quizá a su amiga le distraería coger al niño. Se lo ofreció con un leve estiramiento de brazos y con una mirada. Kathy dijo enseguida “Ay, sí. Dámelo. Qué guapo está. ¿Cuánto pesa?”.
 
 Cuando Fabiana vio a su amiga con Charles en brazos sintió un poco de rechazo. Los 8 kilos de color y de calor de Charles subrayaban la imagen fría y debilitada de Kathy, lo lejos que estaba de la salud. El resto de la tarde lo pasarían refugiadas en hablar de Charles y en sus cosas de bebé. Sin embargo, antes de eso, pocos instantes después de tomar en brazos al hijo de su amiga, Kathy le pidió a Fabiana con dulzura -pero con cierto aire de superioridad- que pusiera otra vez la televisión. Lo hizo con un “y” delante de la frase:
 
 -Y pon la tele otra vez.
 
-Como si aquello fuera el final de una clase sobre cómo tratar a un enfermo terminal.
+Como si aquello fuera el final de una clase magistral sobre cómo tratar a un enfermo terminal.
 
 Dejar la televisión encendida, repartiendo cotidianidad, a pesar del encierro de James, le había hecho pensar en Kathy. El recuerdo se había terminado con la imagen de Charles bebé en brazos de su amiga. Eso le había abierto a Fabiana otro código postal en su memoria; el de la infancia y la adolescencia de Charles.
 
@@ -678,9 +678,9 @@ Es verdad, se dijo James, orgulloso de la precisión de su mujer. Ese es el mome
 
 Con los años, Charles y James se reconciliaron y volvieron a hablarse y a llevarse bien, pero ya no se sentían como un padre y un hijo.
 
-En una ocasión, cuando Charles ya tenía 23 años -ya se habían reconciliado- James le manifestó a Fabiana ese sentimiento de seguir queriendo intensamente a Charles pero habiendo dejado de sentirse tan paternal con él. Fabiana le recriminó entonces sin demasiada dureza:
+En una ocasión, cuando Charles ya tenía 23 años -ya se habían reconciliado- James le manifestó a Fabiana ese sentimiento de seguir queriendo intensamente a Charles, pero habiendo dejado de sentirse tan paternal con él. Fabiana le recriminó entonces sin demasiada dureza:
 
--Eso es porque durante la adolescencia se alejan un poco. Eso normal, te lo dije. Pero tú en vez de acercarte a él te alejaste también de él. Lo rechazaste por su rechazo. Su rechazo era normal... el tuyo... No sé. No tanto, pero puede que también sea una cosa que soléis hacer los hombres adultos. ¿Dónde queda ahora eso de (Fabiana adopta voz de monstruo de las cavernas): “con el tiempo yo querré más a Charles porque se habrá convertido en un hombre blablabla, mierda fálica, blablabla, y tú echarás de menos al bebé, blablabla falo-freud-envidia de pene- útero melancólico, blablabla”.
+-Eso es porque durante la adolescencia se alejan un poco. Es normal, te lo dije. Pero tú en vez de acercarte a él te alejaste también de él. Lo rechazaste por su rechazo. Su rechazo era normal... el tuyo... No sé. No tanto, pero puede que también sea una cosa que soléis hacer los hombres adultos. ¿Dónde queda ahora eso de (Fabiana adopta voz de monstruo de las cavernas): “con el tiempo yo querré más a Charles porque se habrá convertido en un hombre blablabla, mierda fálica, blablabla, y tú echarás de menos al bebé, blablabla falo-freud-envidia de pene- útero melancólico, blablabla”.
 
 -Joder, Fabiana. Eres una zorra con memoria de elefante. Pero tienes razón. Me he equivocado con él.
 
@@ -705,7 +705,7 @@ Fabiana y James empezaron a reírse. No eran racistas ni homófobos, solo fingí
 
 
 
-11
+## 11
 
 
 
