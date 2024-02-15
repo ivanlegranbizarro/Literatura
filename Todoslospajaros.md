@@ -23580,6 +23580,7 @@ envolverme entre sus garras.
 
 
 
+
 ## Tristán e Isolda
 
 A mí no me encantó
@@ -23668,3 +23669,52 @@ repuso:
 'Quizá aquello
 era amor
 porque era un accidente'.
+
+
+
+
+
+
+## Abre esto
+
+Por culpa del cambio climático,
+para casi todos vosotros,
+la primavera empezará
+solo en el calendario.
+
+Será reemplazada
+por oleadas polares,
+cuyo frío asesino
+le tapará la boca a las flores
+para que no chillen.
+
+Sin embargo, para mí
+funcionará de otra manera:
+he vuelto a hablar con Gemma.
+
+Y aun así, no es oro
+todo lo que reluce.
+Todas las rosas
+tienen sus espinas
+y esta es una
+de las nuestras:
+Gemma se ríe de mí
+cuando le digo
+que soy un hombre musculoso.
+
+¿Cómo le explico
+que todos los tíos
+creemos que somos Bruce Willis
+cuando nos ponemos
+una camiseta de tirantes?
+
+Por culpa
+del cambio climático,
+para casi todos vosotros,
+la primavera comenzará solo
+en el calendario.
+Para mí, comenzará,
+lo más tarde,
+cuando Gemma me pida
+que le abra
+una lata de tomate
