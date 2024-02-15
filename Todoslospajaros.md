@@ -23686,7 +23686,7 @@ Será reemplazada
 por oleadas polares,
 cuyo frío asesino
 le tapará la boca a las flores
-para que no chillen.
+para que no chillen en abril.
 
 Sin embargo, para mí
 funcionará de otra manera:
