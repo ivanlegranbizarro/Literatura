@@ -23759,7 +23759,7 @@ Antes de conocerte
 para mí
 hogar
 era un lugar
-en donde hay Paracetamol
+en donde había Paracetamol
 y cosas tiradas
 por el sofá.
 Ahora, sin embargo,
