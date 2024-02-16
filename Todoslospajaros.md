@@ -23753,7 +23753,7 @@ a cualquiera.
 Yo lo noto
 y tú lo sabes:
 eres la precursora
-de una gran floración
+de una gran floración.
 
 Antes de conocerte
 para mí
@@ -23774,7 +23774,7 @@ de las manos;
 digamos que no lo hago
 desde que en las pelis
 la gente
-ha dejado de visitar adivinas
+dejó de visitar adivinas
 para que les diga
 cuán larga es
 la línea de su vida.
@@ -23788,7 +23788,7 @@ es corta?
 ¿Y si no
 se me va a conceder
 el tiempo necesario
-para disfrutarte?
+para disfrutar de ti?
 
 Me gustaría vivir
 en alguna simpática villa
