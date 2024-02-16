@@ -23724,8 +23724,8 @@ una lata de tomate.
 
 ## Todo al rojo
 
-Bueno, Gemma
-pues ya que no soy tan fuerte
+Bueno, Gemma,
+pues ya que no soy tan fuerte,
 al menos, ven conmigo
 al casino.
 Sé que me darías tanta suerte
