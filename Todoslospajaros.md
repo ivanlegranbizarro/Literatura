@@ -23674,7 +23674,6 @@ porque era un accidente'.
 
 
 
-
 ## Abre esto
 
 Por culpa del cambio climático,
@@ -23718,3 +23717,99 @@ lo más tarde,
 cuando Gemma me pida
 que le abra
 una lata de tomate.
+
+
+
+
+
+## Todo al rojo
+
+Bueno, Gemma
+pues ya que no soy fuerte
+al menos, ven conmigo
+al casino.
+Sé que me darías tanta suerte
+que saldríamos de allí
+siendo muy ricos.
+
+Me imagino
+a esos millonarios
+de recio abolengo
+mirándote
+y envidiándome
+mientras me susurras al oído:
+'cariño,
+apuéstalo todo al rojo'.
+
+Y todos esos viejos
+con smoking
+se fijarían en el brillo
+de esos ojos
+tan tuyos
+que son capaces
+de someter químicamente
+a cualquiera.
+
+Yo lo noto
+y tú lo sabes:
+eres la precursora
+de una gran floración
+
+Antes de conocerte
+para mí
+hogar
+era un lugar
+en donde hay Paracetamol
+y cosas tiradas
+por el sofá.
+Ahora, sin embargo,
+muy a mi pesar,
+hogar
+es cualquier lugar
+en donde tú me esperes.
+
+Hace años
+que no me observo las palmas
+de las manos;
+digamos que no lo hago
+desde que en las pelis
+la gente
+ha dejado de visitar adivinas
+para que les diga
+cuán larga es
+la línea de su vida.
+
+Desde que me he reencontrado contigo
+me aterra
+la idea
+de observarme las manos.
+¿Y si la línea de mi vida
+es corta?
+¿Y si no
+se me va a conceder
+el tiempo necesario
+para disfrutarte?
+
+Me gustaría vivir
+en alguna simpática villa
+de América.
+Dejar tartas de manzana
+en el alféizar de nuestra ventana
+para que tú sonrías al verlas
+cuando llegues a casa.
+
+Me explico mal.
+Me gustas bien.
+
+Si vienes conmigo
+no voy a tener
+dudas
+ni preguntas.
+La vida,
+la muerte y Dios
+son solo
+contestadores automáticos
+a los que no vale la pena
+dejarles ningún mensaje
+después de escuchar
+la señal.
