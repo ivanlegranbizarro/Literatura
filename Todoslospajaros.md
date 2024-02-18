@@ -23652,7 +23652,7 @@ cuando llegan a tu vida.
 
 '¿Les ha gustado?',
 nos preguntó Nora Catelli.
-Muchos a alumnos
+Muchos alumnos
 alzaron las manos
 para responder que no.
 Que aquello no era amor,
@@ -23813,3 +23813,112 @@ a los que no vale la pena
 dejarles ningún mensaje
 después de escuchar
 la señal.
+
+
+
+
+## La maldición
+
+Hoy me he echado una siesta
+antes de ir al trabajo
+y he soñado
+que eras una locutora
+de informativos de la radio.
+
+Qué violento sería
+que a una payasa
+tan divertida como tú
+la pusieran a leer
+noticias tristes
+sobre la guerra
+o sobre las medidas a seguir
+para combatir la sequía.
+
+Tú serías un desperdicio
+como estrella de la radio;
+con esa mirada radiactiva,
+con esa sonrisa
+que empuja su brillo
+hacia los pájaros:
+'se despide de ustedes por hoy
+su reportera de confianza,
+Gemma Muntanyer'.
+
+No siempre te disfruto.
+A menudo
+estoy en una montaña rusa
+en la que cuelgo del revés
+con el corazón en la boca,
+preparado para ser vapuleado
+por alguna nueva desventura.
+
+Gustándome como me gustas
+soy un paciente al que abrieron
+y luego olvidaron hacerle la sutura.
+
+Para mí
+ya no eres solo una mujer.
+Eres también
+una orden religiosa
+a la que rezo
+para pedirle
+por todas mis cosas.
+
+Soy un hechizado,
+un electrocutado
+con el alma despeinada.
+Si es que
+por ser
+soy también
+el hombre
+con las luces
+y las sombras
+más alargadas
+de toda esta ciudad.
+
+Voy al súper
+y leo con detenimiento
+todos los envases.
+Recopilo información nutricional
+para escribirte un libro de cocina:
+'Comida sana
+para que Gemma
+esté siempre muy contenta'.
+
+El sol, el viento;
+todas las energías renovables
+se me marchitan en las manos
+cuando no tengo noticias tuyas.
+
+Constantemente
+me deforesto.
+Me asfalto nuevos caminos
+para llegar a sitios
+de mi corazón
+que estarían mejor
+sin que nadie
+los turbara.
+
+¡Volved!
+Crucigramas,
+sudokus...
+Estoy aquí,
+esperándoos a vosotros
+y a los relojes
+que vuelvan a medir el tiempo
+con sosegada respiración.
+
+Busco en el catálogo online
+de las bibliotecas municipales
+libros de hechicería que me ayuden:
+instrucciones
+para hacer rituales
+con velas negras,
+círculos de sal,
+lunas llenas...
+Lo que sea
+con tal de librarme
+de esta maldición
+y que regrese
+de nuevo conmigo
+mi corazón.
