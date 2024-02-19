@@ -23883,7 +23883,8 @@ Recopilo información nutricional
 para escribirte un libro de cocina:
 'Comida sana
 para que Gemma
-esté siempre muy contenta'.
+esté siempre sana
+y muy contenta'.
 
 El sol, el viento;
 todas las energías renovables
@@ -23905,20 +23906,21 @@ sudokus...
 Estoy aquí,
 esperándoos a vosotros
 y a los relojes
-que vuelvan a medir el tiempo
+que deben volver
+a medir el tiempo
 con sosegada respiración.
 
 Busco en el catálogo online
 de las bibliotecas municipales
 libros de hechicería que me ayuden:
 instrucciones
-para hacer rituales
-con velas negras,
+para deshacer maldiciones,
+rituales con velas negras,
 círculos de sal,
 lunas llenas...
 Lo que sea
 con tal de librarme
 de esta maldición
-y que regrese
+para que regrese
 de nuevo conmigo
 mi corazón.
