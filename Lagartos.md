@@ -105,7 +105,7 @@ Debido a lo poco que se conocían su abuela y su novia -y también a lo poco que
 
 Pero no era una agresión ni una brutalidad. La propia Fabiana, apercibida del rictus preocupado de James, tranquilizó más tarde a su joven novio diciéndole que el cariño casi abusivo de su abuela le gustaba y no se le hacía empalagoso.
 
-En el convite de la boda (28 y 33 años, y Charles empezando a respirar en la barriga de Fabiana) James saltó al escenario y después de carraspear ante el micrófono empezó a leer una especie de discurso en el que pasaba revista a casi todos los invitados y les agradecía la asistencia. Aunque estaba casi borracho, esperando su primer hijo y acababa de casarse con la mujer de su vida, James concluyó el discurso de su boda con una reflexión sombría, algo de intimidad triste puesta en público:
+En el convite de la boda (28 y 33 años, y Charles empezando a un plan viable en la barriga de Fabiana) James saltó al escenario y después de carraspear ante el micrófono empezó a leer una especie de discurso en el que pasaba revista a casi todos los invitados y les agradecía la asistencia. Aunque estaba casi borracho, esperando su primer hijo y acababa de casarse con la mujer de su vida, James concluyó el discurso de su boda con una reflexión sombría, algo de intimidad triste puesta en público:
 
 -Desafortunadamente, no todos los invitados a la boda han podido asistir.
 
