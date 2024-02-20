@@ -725,11 +725,13 @@ Se abrazaron sinceramente, casi oliéndose el uno al otro. Se abrazaron como si 
 
 -Mi viejoven amigo. Estás realmente espléndido. Vas a obligarme a decir que para ti no pasa el tiempo.
 
--Pues tú... -James empezó a inventar un símil rápido-... Mira, será mejor que no entremos a ninguna tienda de golosinas hoy. Los golosineros te mirarían mal... Lo más dulce de la tienda ya no serían las golosinas.
+-Pues tú... -James empezó a inventar un símil rápido-... Mira, será mejor que no entremos a ninguna tienda de golosinas hoy. Pues como tú sigas así, chavala, saldrán unos encapuchados del camión de Donuts y te raptarán.
 
-Alison lo cogió del brazo y empezó a reírse. Charles sabía que el sentido del humor era mucho más profundo e importante de lo que la sociedad y la cultura estaban dispuestas a admitir. El humor podía ser una manera más eficaz de parecer guapo, ser inteligente o incluso hacer saber a alguien que lo quieres sin tener que recurrir a la cursilería, o a la intensidad de las manifestaciones sentimentales que el cine y las personas insinceras habían vaciado de significado.
+-Ah, ¿y no me violarán, no? Soy poco interesante para eso...
 
--Eres un cabrón.
+Charles se puso ojiplático mientras buscaba explicaciones, hasta que Alison lo cogió del brazo y empezó a reírse. Charles sabía que el sentido del humor era mucho más profundo e importante de lo que la sociedad y la cultura estaban dispuestas a admitir. El humor podía ser una manera más eficaz de parecer guapo, ser inteligente o incluso hacer saber a alguien que lo quieres sin tener que recurrir a la cursilería, o a la intensidad de las manifestaciones sentimentales que el cine y las personas insinceras habían vaciado de significado.
+
+-Eres una cabrona.
 
 -Y tú dos.
 
