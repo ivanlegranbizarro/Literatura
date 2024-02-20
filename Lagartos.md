@@ -871,11 +871,11 @@ Charles se puso de pie y se fue al baño. Cuando regresó se sentó frente a Ali
 
 Alison rio salvajemente durante el medio segundo que tardó en llevarse ambas manos a la boca. Charles sonrió, le encantaba verla feliz, y más si él era la causa de esa felicidad.
 
--No. Ahora en serio. Me parece penoso, muñeca. ¿Te gusta porque es músico? ¿Porque es mago? ¿O porque no te hace ni puto caso?
+-No. Ahora en serio. Me parece penoso, baby. ¿Te gusta porque es músico? ¿Porque es mago? ¿O porque no te hace ni puto caso?
 
 -Por todo. Creo que sobre todo por la música. Él es intérprete.
 
--Ah... uno de esos músicos que no inventan música. Que son como reproductores mp3 pero que pesan 70 kilos, ¿no?
+-Ah... uno de esos músicos que no inventan música. Que son como reproductores mp3 de 70 kilos, ¿no?
 
 -No, capullo. Ya te gustaría a ti tocar el piano como él.
 
@@ -908,11 +908,11 @@ Charles estiró su mano y la apoyó sobre la de su amiga.
 
 
 
-12
+## 12
 
 
 
-Cuando se despertó, Fabiana se sintió mínimamente consolada al ver que James ya se había marchado a trabajar. Le apetecía estar sin él, pero sabiendo dónde se encontraba; como cuando se descansa de los niños mientras se marchan de colonias. Además, por el desorden de las toallas, el sudor de las paredes del baño y el vaho en el espejo, Fabiana se dio cuenta de que James se había duchado antes de marcharse. Eso la tranquilizaba; pensar que James había acudido al trabajo puntual y aseado hacía que le restara gravedad a la rarísima actitud de su esposo; ella pensaba que mientras su marido siguiera yendo al trabajo fuera lo que fuera lo que había empezado a ocurrirle sería un problema acotado, como si se acorralara el perímetro de un tumor para controlarlo hasta que llegara la hora de la intervención quirúrgica. Cuando Fabiana se lavó la cara, comprobó que en el grifo del lavabo quedaban algunos de esos pelillos que parecen ceniza y que atoran las maquinillas de afeitar. Sintió incluso alegría al imaginar que James se había afeitado; estaba empezando a fantasear con que el extraño comportamiento de ayer de su marido había sido solo un espejismo. Y si no era así, al menos tenía el resto del día para seguir esperanzándose con ello sin que nada la perturbara hasta que él regresara por la noche.
+Cuando se despertó, Fabiana se sintió mínimamente consolada al ver que James ya se había marchado a trabajar. Le apetecía estar sin él, pero sabiendo dónde se encontraba; como cuando se descansa de los niños mientras se marchan de colonias. Además, por el desorden de las toallas, el sudor de las paredes del baño y el vaho en el espejo, Fabiana se dio cuenta de que James se había duchado antes de marcharse. Eso la tranquilizaba; pensar que James había acudido al trabajo puntual y aseado hacía que le restara gravedad a la rarísima actitud de su esposo; ella pensaba que mientras su marido siguiera yendo al trabajo fuera lo que fuera lo que había empezado a ocurrirle sería un problema acotado, como si se acorralara el perímetro de un tumor para controlarlo hasta que llegara la hora de la intervención quirúrgica. Cuando Fabiana se lavó la cara, comprobó que en el grifo del lavabo quedaban algunos de esos restos que parecen ceniza y que atoran las maquinillas de afeitar. Sintió incluso alegría al imaginar que James se había afeitado; estaba empezando a fantasear con que el extraño comportamiento de ayer de su marido había sido solo un espejismo. Y si no era así, al menos tenía el resto del día para seguir esperanzándose con ello sin que nada la perturbara hasta que él regresara por la noche.
 
 Fabiana no sabía cómo se sentía. Notaba que en el pecho tenía una masa de sensaciones, pero estas sensaciones no acababan de determinarse en desesperación, tristeza o furia. Fabiana decidió que un poco de actividad le iría bien y se dispuso a limpiar la casa. Después de preparar el agua para fregar y de sacar los diferentes productos de limpieza, fue hasta el equipo de música del salón y puso música. La música le diría cómo sentirse.
 
