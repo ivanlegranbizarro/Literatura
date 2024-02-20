@@ -782,7 +782,7 @@ Charles miró con preocupación a su amiga.
 
 -¿Y crees que es algo puntual? ¿Algo que le está ocurriendo ahora o crees que podría ser así siempre?
 
--No lo sé. Hace poco que lo conozco... Pero me gusta mucho. El otro día lo invité a venir a casa. Se lo dije a mis padres y todo... Él me dijo que sí, pero luego, sencillamente, no vino. Me llamó a la hora en que debería haberse presentado en casa y me dijo “No puedo. Lo siento. Adiós”.
+-No lo sé. Hace poco que lo conozco... Pero me gusta mucho. El otro día lo invité a venir a casa. Se lo dije a mis padres y todo... Él me dijo que sí, pero luego, sencillamente, no vino. Me llamó a la hora en que debería haberse presentado en casa y me dijo “No puedo, Alison. Lo siento. Ya te explicaré”. Y aún no me ha explicado nada.
 
 -¡Pero qué pedazo de... -Charles frenó la frase porque observó cómo Alison levantaba la mirada hacia él. Era una mirada salvaje que decía: ni se te ocurra meterte con mi novio. Charles tuvo la suficiente velocidad como para reconvertir la frase en una broma-... cerveza nos estamos tomando!
 
@@ -800,9 +800,9 @@ Alison le sonrió mientras seguía clavando las uñas en la etiqueta de la cerve
 
 -Yo... No quiero generarte rechazo. Pero soy tu amigo. ¿Qué se supone que debo decirte yo? Ponte en mi lugar. Si yo te hablara de una chica que me trata así irías a su casa a arañarle la cara a ella y a su madre.
 
-La rabia de Alison languideció de golpe y terminó con una sonrisa. Alison volvió a darse cuenta de que estaba con un amigo.
+-No, más bien las degollaría y con su sangre escribiría en el porche de su casa: "Aquí vivieron y murieron dos putas".
 
--Y también arañaría a su perro -susurró ella tiernamente, mirando a Charles casi con coquetería.
+Rieron. La rabia de Alison languideció de golpe y terminó con una sonrisa. Alison volvió a darse cuenta de que estaba con un amigo.
 
 -Pero bueno. ¿Tú qué tal? ¿Cómo estás?
 
