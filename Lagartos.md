@@ -764,7 +764,7 @@ Rieron un poco y entonces Charles retomó el asunto.
 
 -¿Y eso por qué? ¿Por qué os va mal?
 
-Siempre que Alison le explicaba a Charles algo que le hacía sentirse triste desviaba la vista y la ponía sobre un objeto cualquiera: el servilletero, la mesa, la cerveza, el móvil... Era como si le avergonzaran siempre sus motivos para no ser feliz.
+Siempre que Alison le explicaba a Charles algo que le hacía sentirse triste desviaba la vista y la ponía sobre un objeto cualquiera: el servilletero, la mesa, la cerveza, el móvil... Era como si sus razones para no ser feliz siempre la avergonzaran.
 
 -Pasa de todo.
 
