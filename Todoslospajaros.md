@@ -23924,3 +23924,88 @@ de esta maldición
 para que regrese
 de nuevo conmigo
 mi corazón.
+
+
+
+
+
+## El mejor regalo
+
+No sé cómo fue
+tu adolescencia.
+Pero para mí
+es como si hubieras sido
+la chica más popular
+del instituto.
+De hecho, ahora,
+a tus 32 años,
+para mí eres
+la Margot Robbie
+del barrio de Gràcia.
+
+Me reverdeces.
+Si en algún momento
+he dejado de ser yo
+durante estos años,
+ahora he regresado a mí.
+
+Cuando paso un rato contigo
+me siento
+como cuando salí
+de hacer la selectividad
+y tenía
+toda la vida por delante.
+
+Eso me eres;
+vida por delante.
+Soy lo mejor
+que le puede pasar a un hombre:
+saber que acaba de salir
+de alguna cárcel.
+
+Mentiría
+si dijera
+que no me gustaría
+que te quedases dormida
+en alguna pradera.
+Al despertar,
+te picaría la cabeza,
+puede que también una axila...
+Cielo santo, Gemma;
+¡has cogido garrapatas!
+Te llevaría de la mano
+a mi cuarto de baño
+y bajo el chorro alógeno
+de mis bombillas
+te examinaría
+muy atentamente.
+Ese día
+me aprendería
+tu cuerpo para siempre,
+mientras te desparasito
+como hacen los simios
+que se quieren mucho.
+
+No sé si te gusto
+o te has rendido con el mundo
+y simplemente
+te gusta
+la forma en que me gustas.
+
+Ven a mi casa
+a irradiar tu risa.
+Que los vecinos protesten
+golpeando la pared.
+Que la policía
+llame a mi puerta
+autoritariamente;
+que nos amenacen
+con llevarnos presos
+a menos
+que bajes
+el volumen de tu risa.
+
+Estoy loco,
+pero sé que el mejor regalo
+que podría hacerle a mis hijos,
+es que salieran de tu coño.
