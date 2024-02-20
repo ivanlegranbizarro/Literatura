@@ -817,7 +817,7 @@ Rieron. La rabia de Alison languideció de golpe y terminó con una sonrisa. Ali
 
 -¿Por?
 
--Es como si mi madre le diera asco. En serio... Estábamos cenando pizza y no sé, la miraba casi como si le tuviera miedo. Pero... es que es muy fuerte, no te puedes imaginar lo raro que ha sido. Además... ha venido apestando a alcohol, no sé. Hoy ya me ha llamado por teléfono y me ha preguntado por mi madre... ha sido muy raro. Me ha llamado antes de llegar a casa para preguntarme a mí por ella en vez de llamarla a ella...
+-Es como si mi madre le diera asco. En serio... Estábamos cenando pizza y no sé, la miraba casi como si le tuviera miedo. Pero... es que es muy fuerte, no te puedes imaginar lo raro que ha sido. Además... ha venido apestando a alcohol, no sé. Hoy ya me ha llamado por teléfono y me ha preguntado por mi madre... ha sido muy creepy. Me ha llamado antes de llegar a casa para preguntarme a mí por ella en vez de llamarla a ella...
 
 -¿Pero qué te ha preguntado?
 
