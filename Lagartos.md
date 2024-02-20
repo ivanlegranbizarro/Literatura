@@ -995,7 +995,7 @@ James se molestó, intentaba confesarle algo profundo a Fabiana y ella no paraba
 
 -No, ya te he dicho que no.
 
--Vale, entonces te sientes mal por algo... mmm, ¿crees que durante algunos años, antes de que naciera Charles, tú me moldeaste un poco?
+-Vale, entonces te sientes mal por algo... mmm, ¿crees que durante algunos años, antes de que naciera Charles, tú intentaste moldearme?
 
 -Sí, va por ahí.
 
@@ -1044,7 +1044,7 @@ Convivir con la infancia de Charles había completado la madurez de Fabiana. Ell
 
 
 
-13
+## 13
 
 
 
