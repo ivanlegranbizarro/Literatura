@@ -723,7 +723,7 @@ Alison era una de esas extrañísimas mujeres que son guapas pero les da igual s
 
 Se abrazaron sinceramente, casi oliéndose el uno al otro. Se abrazaron como si alguien importante se hubiera muerto para el otro y quisieran reconfortarlo. Eran amigos desde hacía 9 años y llevaban casi un mes sin verse. Empezaron a soltarse coñas.
 
--Mi viejo joven amigo. Estás realmente espléndido. Vas a obligarme a decir que para ti no pasa el tiempo.
+-Mi viejoven amigo. Estás realmente espléndido. Vas a obligarme a decir que para ti no pasa el tiempo.
 
 -Pues tú... -James empezó a inventar un símil rápido-... Mira, será mejor que no entremos a ninguna tienda de golosinas hoy. Los golosineros te mirarían mal... Lo más dulce de la tienda ya no serían las golosinas.
 
