@@ -23842,7 +23842,7 @@ que empuja su brillo
 hacia los pájaros:
 'se despide de ustedes por hoy
 su reportera de confianza,
-Gemma Muntanyer'.
+Gemma Barceló'.
 
 No siempre te disfruto.
 A menudo
