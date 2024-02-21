@@ -23960,7 +23960,7 @@ Eso me eres;
 vida por delante.
 Soy lo mejor
 que le puede pasar a un hombre:
-saber que acaba de salir
+la sensación de acabar de salir
 de alguna cárcel.
 
 Mentiría
