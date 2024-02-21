@@ -23975,7 +23975,7 @@ Cielo santo, Gemma;
 ¡has cogido garrapatas!
 Te llevaría de la mano
 a mi cuarto de baño
-y bajo el chorro alógeno
+y bajo el chorro halógeno
 de mis bombillas
 te examinaría
 muy atentamente.
