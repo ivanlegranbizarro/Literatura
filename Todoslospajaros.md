@@ -24014,7 +24014,7 @@ es que salieran de tu coño.
 
 
 
-## Gemma es muy joven
+## Eres muy joven
 
 Cuando te enamoras
 de alguien
@@ -24024,19 +24024,68 @@ sabes que aún
 no puede comprenderte del todo.
 
 Ya me pasaba con Andrea.
-A veces me estaba
-bebiendo una cerveza
+Yo a veces me estaba
+tomando una cerveza,
 cuando de repente
-me quedaba paralizado
+me quedaba paralizado,
 con la vista fija
 en la pared del salón.
 
 Sé lo que pensaba ella:
-'este ya está borracho'.
+'este tío ya está borracho'.
 Cuando, en realidad,
-lo único que estaba haciendo
+lo único que yo estaba haciendo
 era quedarme muy quieto
 para sintonizar mejor
 el recuerdo de mi abuela Fernanda
 regando las plantas
 de su casa.
+
+Gemma, tú eres muy joven
+y todavía crees en el mundo.
+
+Todavía no te conozco
+pero sé cómo eres:
+Cuando entras
+a una sala
+llena de niños aburridos,
+inclinas tu rostro
+hacia ellos
+y les propones
+hacer collares
+con macarrones.
+
+Yo, por mi parte,
+vivo, pero al mismo tiempo
+sigo esperando
+a que empiece la vida.
+
+Hago predicciones.
+Preveo
+el terror que sentiré
+cuando rompamos un vaso en la cocina
+y al poco rato
+estés caminando descalza
+por la casa.
+Preveo tu chillido
+cuando te claves un cristal en el pie.
+Preveo cómo te llevaré
+en brazos al sofá
+y cómo te sacaré
+con ayuda de unas pinzas
+la esquirla del pie.
+Estoy seguro
+de que llorarás
+y te reirás
+mientras te curo.
+
+Eres joven
+y eres mi estrépito.
+
+El mundo se va a terminar
+y no es un presentimiento,
+es algo que sé.
+Lo único que pido
+son unos pocos años más
+para ver la tele
+y comer pizza contigo.
