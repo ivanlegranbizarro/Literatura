@@ -24009,3 +24009,34 @@ Estoy loco,
 pero sé que el mejor regalo
 que podría hacerle a mis hijos,
 es que salieran de tu coño.
+
+
+
+
+
+## Gemma es muy joven
+
+Cuando te enamoras
+de alguien
+que aún no ha perdido
+a ningún ser querido,
+sabes que aún
+no puede comprenderte del todo.
+
+Ya me pasaba con Andrea.
+A veces me estaba
+bebiendo una cerveza
+cuando de repente
+me quedaba paralizado
+con la vista fija
+en la pared del salón.
+
+Sé lo que pensaba ella:
+'este ya está borracho'.
+Cuando, en realidad,
+lo único que estaba haciendo
+era quedarme muy quieto
+para sintonizar mejor
+el recuerdo de mi abuela Fernanda
+regando las plantas
+de su casa.
