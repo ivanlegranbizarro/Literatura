@@ -24032,8 +24032,8 @@ con la vista fija
 en la pared del salón.
 
 Sé lo que pensaba ella:
-'este tío ya está borracho'.
-Cuando, en realidad,
+'ya está borracho este cabrón'.
+En realidad,
 lo único que yo estaba haciendo
 era quedarme muy quieto
 para sintonizar mejor
