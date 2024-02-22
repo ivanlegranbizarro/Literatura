@@ -24032,7 +24032,7 @@ con la vista fija
 en la pared del salón.
 
 Sé lo que pensaba ella:
-'ya está borracho este cabrón'.
+'ya está borracho, este cabrón'.
 En realidad,
 lo único que yo estaba haciendo
 era quedarme muy quieto
