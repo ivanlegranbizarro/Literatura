@@ -24071,13 +24071,20 @@ Preveo tu chillido
 cuando te claves un cristal en el pie.
 Preveo cómo te llevaré
 en brazos al sofá
-y cómo te sacaré
-con ayuda de unas pinzas
-la esquirla del pie.
+y cómo te sacaré,
+con ayuda de unas pinzas,
+la esquirla astillada en el pie.
 Estoy seguro
 de que llorarás
 y te reirás
 mientras te curo.
+Seguramente
+sientas miedo,
+asco y amor
+mientras chupo
+la sangre de tu herida,
+antes de desinfectarla
+y ponerle una tirita.
 
 Eres joven
 y eres mi estrépito.
