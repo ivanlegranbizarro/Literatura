@@ -24096,3 +24096,105 @@ Lo único que pido
 son unos pocos años más
 para ver la tele
 y comer pizza contigo.
+
+
+
+
+
+## Pena onírica
+
+(Requisitos: Para entender este poema, debéis saber que Gemma es clown)
+
+Me da mucha pena
+que Gemma
+haya dejado de soñar
+tan pronto conmigo.
+
+Durante las primeras semanas
+me contó
+que había tenido, al menos,
+dos sueños en donde yo aparecía:
+En el primero
+estábamos acostados en su cama, leyendo
+y ella apoyaba su cabeza en mi barriga.
+Un sueño hermoso,
+un archipiélago de paz
+en medio de este mundo
+tan tempestuoso.
+
+En el segundo sueño
+Gemma soñó
+que Taylor Swift
+era como un Nazgûl
+del Señor de los anillos
+que se me llevaba volando.
+
+Yo también
+he soñado al menos
+dos veces con ella.
+
+El primer sueño
+era básicamente una peli porno.
+El otro
+era una comedia romántica.
+
+A Gemma
+le bajaba la regla
+y no tenía tampones.
+Me mandaba bajar al súper a comprarle unos.
+Yo iba
+y se los traía.
+Ella se sentaba en el retrete
+y usaba el aplicador del tampón
+para insertárselo.
+De repente
+me gritaba:
+¡Este no me sirve!
+¡Tráeme otro, idiota!
+No contenta con eso
+se lo quitaba y, chorreando
+sangre,
+me lo arrojaba.
+
+Yo salía corriendo
+a comprar más tampones
+de todas las marcas.
+Ella se los iba probando
+y conforme los probaba
+los rechazaba
+y volvía a tirármelos
+completamente ensangrentados.
+
+Al final,
+Gemma encontraba el tampón ideal,
+me pedía perdón
+por gritarme
+y me abrazaba,
+estrechando mi ropa de la calle
+con su pijama del Rey León.
+En ese instante,
+yo sentía cómo su olor
+alteraba el orden
+íntimo de mi corazón.
+
+Después, una dulce sintaxis
+relacionaba mis labios
+con los suyos.
+Sus ojos
+iban alfabetizando a los míos
+mientras los miraba.
+
+Gemma,
+mezcla mía de Fofito con Salma Hayek,
+cómo no te das cuenta
+de que yo, en realidad,
+solo dejo de soñar contigo
+cuando estoy dormido.
+
+Anda, ven.
+Ven conmigo.
+Si lo haces,
+seremos tan felices
+que confundiremos
+los tomates cherry del supermercado
+con narices de payaso.
