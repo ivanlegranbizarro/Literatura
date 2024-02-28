@@ -584,8 +584,6 @@ A John le gusta tanto Jen que a veces desearía que su relación se asemejara a 
 
 Sin embargo, John es solo un hombre gordo e inteligente, y Jen una chica preciosa y muy polifacética que acaba de vomitar un charco de mocos en el baño de uno de sus dos trabajos.
 
-*WhatsApp*
-
 Jen:
 Ts ts. Sí, tú. ¿Quieres que te cuente algo 🔥🔥🔥?
 John:
@@ -645,7 +643,6 @@ Tomaron asiento en la sala de espera. El militar que vigilaba la sala se paseaba
 
 John y Jen acordaron charlar por WhatsApp, ya que era muy farragoso hacerse entender con la mordaza puesta.
 
-*WhatsApp*
 John:
 ¿Pero cómo te encuentras aparte de lo del 🤮? ¿Tienes fiebre?
 Jen:
@@ -677,7 +674,63 @@ Mi masculinidad, se ha roto.
 Jen:
 Imbécil xDD
 
-John miró Jen y le puso una mano sobre la frente para comprobar si estaba caliente. A pesar de los ojos fatigados y de la mordaza estaba guapa. Hacía muy poco que se conocían, ¿por qué le importaba tanto que esta chavala hubiese enfermado? No era su amiga, tampoco era un familiar; en realidad, podría decirse que apenas la conocía. El enamoramiento es una cosa muy difícil porque, pensaba John, espoleado por la química, te entra prisa por hacer que un desconocido se convierta en un conocido. Hay una especie de frenesí por transformar a alguien que te has encontrado en la calle en un miembro más de tu familia. Hay una ansiedad por convertir en consanguíneo algo que no lo es.
+
+John miró Jen y le posó la mano en la frente para comprobar si estaba caliente. A pesar de los ojos fatigados y de la mordaza estaba guapa. Hacía muy poco que se conocían, ¿por qué le importaba tanto que esta chavala hubiese enfermado? No era su amiga, tampoco era un familiar; en realidad, podría decirse que apenas la conocía. El enamoramiento es una cosa muy difícil porque, pensaba John, espoleado por la química, te entra prisa por hacer que un desconocido se convierta en un conocido. Hay una especie de frenesí por transformar a alguien que te has encontrado en la calle en un miembro más de tu familia. Hay una ansiedad por convertir en consanguíneo algo que no lo es.
+
+John:
+No me parece que tengas fiebre
+
+Volvieron a mirarse y ambos se imaginaron al otro sonriendo bajo la mordaza.
+
+El panel led mostró el número de Jen. John le hizo una señal para indicarle que le diera a él la mochila para que se la custodiara.
+
+Jen:
+Me aburro. El médico me ha dicho que ahora venía pero se ha pirado y no vuelve
+John:
+Por suerte para mí, yo no me aburro
+Jen:
+¿Lees?
+John:
+¿Leer? ¿Para qué? Tengo aquí tu mochila. La estoy inspeccionando entera para conocerte mejor xDDDDDDD
+Jen:
+Qué bien, por fin me lío con un psicópata 😑
+Ahora en serio, cuéntame algo, me aburrooooooo
+John:
+No entiendo a los japoneses. Es una sociedad tan... marciana. En el libro dos amigos se encuentran. A uno se le murieron los padres de pequeño y los padres del otro se acaban de divorciar. La cosa es que los dos están como compitiendo para ver cuál de los dos es menos digno de la lástima del otro, en lugar de tratar de consolarse...
+Jen:
+¿Qué quieres decir?
+John:
+Pues que ambos temen 'molestar' al otro con la tristeza de sus vidas. Pero es que es absurdo, yo me parto con esta absurdidad. El que tiene los padres divorciados le acaba de decir algo como: 'Mira, no te preocupes por mí. Al fin y al cabo, lo tuyo es peor, tus padres están muertos' xDDDDDD
+Jen:
+xDDDDDDDDDD
+John:
+Sí, pero es que el otro le dice: 'Bueno, pero mientras estuvieron vivos me quisieron mucho. ¿Tú puedes decir lo mismo? xDDDDDDDDDDDDDD
+
+Gracias a las paredes de fibrocemento, John escuchó una carcajada tras el despacho en donde estaban atendiendo a Jen.
+
+John:
+No hace falta que pongas el 'hahahahahaha' con hache, te acabo de oír.
+
+La risa de Jen volvió a oírse por buena parte del Hope.
+
+Pasó el rato y John siguió leyendo su libro japonés. De repente Jen volvió a escribirle.
+
+Jen:
+Me van a hacer una placa
+John:
+¿Por qué? No eres tan famosa
+
+La carcajada volvió a filtrarse. John achinó los ojos sonriendo y sintiéndose orgulloso de su broma.
+
+Jen salió y se colocó su mochila.
+
+-Nada, que beba mucho líquido y me ha mandado un jarabe para los mocos.
+
+John buscó con el rabillo del ojo el compás de la mano de Jen al caminar y se la atrapó en mitad del trayecto para que caminasen de la mano. Ella le miró por un instante pero no se soltó. Él le apretó un poco la  mano. Era mejor que escribirle por WhatsApp 'me ha gustado acompañarte 😊'.
+
+De repente una ambulancia violentamente fosforita entró en el hospital. La abrieron y vieron a un joven que se convulsionaba.
+
+
 
 ## La boda de Daisy
 
