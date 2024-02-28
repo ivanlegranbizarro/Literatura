@@ -639,14 +639,14 @@ El Hope Hospital es un hospital provisional que ha terminado por no serlo tanto.
 
 Antes de entrar a la recepción de urgencias, John y Jen volvieron a colocarse las mordazas. Allí les dieron el ticket para pasar al triaje.
 
-Tomaron asiento en la sala de espera. El militar que vigilaba la sala se paseaba con su fusil mientras iba escudriñando los rostros de la gente, cerciorándose de que nadie se quitaba la mordaza.
+Tomaron asiento en la sala de espera. El militar que vigilaba la sala se paseaba con su fusil mientras iba escudriñando los rostros de la gente, cerciorándose de que nadie se saltara las normas quitándose la mordaza.
 
 John y Jen acordaron charlar por WhatsApp, ya que era muy farragoso hacerse entender con la mordaza puesta.
 
 John:
 ¿Pero cómo te encuentras aparte de lo del 🤮? ¿Tienes fiebre?
 Jen:
-No lo sé, no lo creo. No me encuentro demasiado mal, pero ya me venía doliendo un poco la garganta estos días. El otro día me mojé en la parada del autobús y supongo que he empeorado.
+No lo sé, no lo creo. No me encuentro demasiado mal, pero ya me venía doliendo un poco la garganta estos días. El otro día me mojé en la parada del autobús y supongo que he empeorado
 John:
 Bueno, tranquila. Ya estamos aquí. Me he traído un libro, así que te acompañaré el rato que haga falta
 Jen:
@@ -728,7 +728,9 @@ Jen salió y se colocó su mochila.
 
 John buscó con el rabillo del ojo el compás de la mano de Jen al caminar y se la atrapó en mitad del trayecto para que caminasen de la mano. Ella le miró por un instante pero no se soltó. Él le apretó un poco la  mano. Era mejor que escribirle por WhatsApp 'me ha gustado acompañarte 😊'.
 
-De repente una ambulancia violentamente fosforita entró en el hospital. La abrieron y vieron a un joven que se convulsionaba.
+De repente una ambulancia violentamente fosforita entró en el hospital. La abrieron y sacaron una camilla con un joven que se convulsionaba. John y Jen se soltaron la mano. Se miraron por un momento y John trató de cogerle la mano de nuevo, pero Jen no quiso esta vez. Salieron del recinto con las manos en los bolsillos, sin dirigirse la palabra.
+
+John no sabía si acababa de experimentar un mal presagio.
 
 
 
