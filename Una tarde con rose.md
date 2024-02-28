@@ -674,7 +674,7 @@ Jen:
 Imbécil xDD
 
 
-John miró a Jen y le posó la mano en la frente para comprobar si estaba caliente. A pesar de los ojos fatigados y de la mordaza estaba guapa. Hacía muy poco que se conocían, ¿por qué le importaba tanto que esta chavala hubiese enfermado? No era su amiga, tampoco era un familiar; en realidad, podría decirse que apenas la conocía. El enamoramiento es una cosa muy difícil porque, pensaba John, espoleado por la química, te entra prisa por hacer que un desconocido se convierta en un conocido. Hay una especie de frenesí por transformar a alguien que te has encontrado en la calle en un miembro más de tu familia. Hay una ansiedad por convertir en consanguíneo algo que no lo es.
+John miró a Jen y le posó la mano en la frente para comprobar si estaba caliente. A pesar de los ojos fatigados y de la mordaza estaba guapa. Hacía muy poco que se conocían, ¿por qué le importaba tanto que esta chavala hubiese enfermado? No era su amiga, tampoco era un familiar; en realidad, podría decirse que apenas la conocía. El enamoramiento es una cosa muy difícil porque, pensaba John, espoleado por la química, te entra prisa por hacer que un desconocido se convierta en un conocido. Hay una especie de frenesí por transformar a alguien que te has encontrado en la calle en un miembro más de tu familia. Hay un ansia por convertir en consanguíneo algo que no lo es.
 
 John:
 No me parece que tengas fiebre
