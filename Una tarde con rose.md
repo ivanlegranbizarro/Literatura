@@ -661,8 +661,7 @@ A mí no me insultes, que me gusta y me da igual que estemos en un hospital para
 Jen:
 Gracias por venir
 John:
-Gracias a ti, por vomitar moco y permitir que mi masculinidad frágil
-se sienta un poco menos frágil haciéndote de 🦸
+Gracias a ti por vomitar moco y permitir que mi masculinidad frágil se sienta un poco menos frágil haciéndote de 🦸
 Jen:
 Ahora entiendo por qué eres gordo; serías demasiado guay si no xDDD
 John:
@@ -722,7 +721,7 @@ John:
 
 La carcajada volvió a filtrarse. John achinó los ojos sonriendo y sintiéndose orgulloso de su broma.
 
-Jen salió y se colocó su mochila.
+Al cabo de un buen rato, Jen salió por fin y se colocó su mochila.
 
 -Nada, que beba mucho líquido y me ha mandado un jarabe para los mocos.
 
