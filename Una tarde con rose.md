@@ -619,7 +619,7 @@ John:
 Jen:
 hahahaha
 John:
-Además, no lo tomes a mal, pero creo que ya nunca más volveremos a acostarnos tú y yo..
+Además, no lo tomes a mal, pero creo que ya nunca más volveremos a acostarnos tú y yo...
 Jen:
 ??
 John:
