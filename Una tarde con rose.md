@@ -578,6 +578,106 @@ Yo amo a Andrea por cosas así.
 
 
 
+## Hope Hospital
+
+A John le gusta tanto Jen que a veces desearía que su relación se asemejara a la que tienen en los cómics los súper héroes y sus villanos. A John le gustaría sintonizar la emisora de la policía y captar cómo informan de que Jen está atracando un banco. Él iría allí y frustraría los planes de robo de Jen pero, obviamente, esta se le escaparía dándose a la fuga en un helicóptero mientras le dedica una sonrisa socarrona. Algo así. John quiere una relación asombrosa, épica; llena de accidentes y de imprevistos en medio de la ciudad. Una relación que se parezca un poco a toda la agitación que Jen le causa en el corazón.
+
+Sin embargo, John es solo un hombre gordo e inteligente, y Jen una chica preciosa y muy polifacética que acaba de vomitar un charco de mocos en el baño de uno de sus dos trabajos.
+
+*WhatsApp*
+
+Jen:
+Ts ts. Sí, tú. ¿Quieres que te cuente algo 🔥🔥🔥?
+John:
+Claro. Yo estoy siempre listo 🍆🧻
+Jen:
+Acabo de 🤮 un charco de mocos
+John:
+¿Eran muy oscuros?
+Jen:
+Pues sí
+John:
+Uff. Cuéntame más
+Jen:
+xDDDDDDD Y será verdad que te pone, puto 🐷
+John:
+🙈🙈🙈
+Jen:
+Bueno, ahora en serio, que no sé si podré quedar hoy. Creo que mejor me paso por urgencias cuando salga del curro.
+John:
+¿Te acompaño?
+Jen:
+Si quieres... Pero no vamos a follar. No te voy a dejar que te me acerques demasiado...
+John:
+Mujer... ya contaba con ello xD
+Jen:
+¿Ah, sí? ¿Ya no eres hetero?
+John:
+Sí, pero deconstruido 🤓
+Jen:
+Ya quisieras tú ser deconstruido xDDDD
+John:
+¿Cómo no lo voy a ser? Si bebo té verde y reciclo, idiota xDDD
+Jen:
+hahahaha
+John:
+Además, no lo tomes a mal, pero creo que ya nunca más volveremos a acostarnos tú y yo..
+Jen:
+??
+John:
+No entiendo cómo te puedes reír con haches en vez de con jotas. Me asusta 🎃
+Jen:
+Vale, me falta solo un 20% para que termine de descargarse Tinder
+John:
+xDDDDDDDDDD maldita 🐶
+Jen:
+Ahora en serio, ¿me acompañas? Es en el Hope Hospital. ¿Sabes ir? ¿Puedes estar allí a las 19:00?
+John:
+Yo y mi rancia puntualidad estaremos allí esperándote
+
+A las 19:00 se encontraron en el hospital, se quitaron las mordazas para darse un abrazo lo bastante largo como para que diera tiempo a escribir en una pizarra 'tenía ganas de verte'.
+
+El Hope Hospital es un hospital provisional que ha terminado por no serlo tanto. Se levantó deprisa durante 'la crisis' del inicio de las transformaciones y se ha seguido usando por pura comodidad y por pura falta de recursos para levantar un hospital nuevo más sólido. El Hope está construido con un material parecido a la uralita o fibrocemento, un material resistente pero muy mal aislante, que hace que la gente tenga mucho frío o mucho calor y que, además, se filtre todo el sonido.
+
+Antes de entrar a la recepción de urgencias, John y Jen volvieron a colocarse las mordazas. Allí les dieron el ticket para pasar al triaje.
+
+Tomaron asiento en la sala de espera. El militar que vigilaba la sala se paseaba con su fusil mientras iba escudriñando los rostros de la gente, cerciorándose de que nadie se quitaba la mordaza.
+
+John y Jen acordaron charlar por WhatsApp, ya que era muy farragoso hacerse entender con la mordaza puesta.
+
+*WhatsApp*
+John:
+¿Pero cómo te encuentras aparte de lo del 🤮? ¿Tienes fiebre?
+Jen:
+No lo sé, no lo creo. No me encuentro demasiado mal, pero ya me venía doliendo un poco la garganta estos días. El otro día me mojé en la parada del autobús y supongo que he empeorado.
+John:
+Bueno, tranquila. Ya estamos aquí. Me he traído un libro, así que te acompañaré el rato que haga falta
+Jen:
+¿Te has traído un libro? Quedamos y te traes un libro...
+John:
+Espera que te vuelvo a escribir la frase resaltando la parte importante:
+Me he traído un libro, ASÍ TE ACOMPAÑARÉ EL RATO QUE HAGA FALTA.
+Jen:
+A mí no me grites, payaso
+John:
+A mí no me insultes, que me gusta y me da igual que estemos en un hospital para 🍆🧻
+Jen:
+Gracias por venir
+John:
+Gracias a ti, por vomitar moco y permitir que mi masculinidad frágil
+se sienta un poco menos frágil haciéndote de 🦸
+Jen:
+Ahora entiendo por qué eres gordo; serías demasiado guay si no xDDD
+John:
+¿Y ese ruido?
+Jen:
+¿Qué ruido?
+John:
+Mi masculinidad, se ha roto.
+Jen:
+Imbécil xDD
+
+John miró Jen y le puso una mano sobre la frente para comprobar si estaba caliente. A pesar de los ojos fatigados y de la mordaza estaba guapa. Hacía muy poco que se conocían, ¿por qué le importaba tanto que esta chavala hubiese enfermado? No era su amiga, tampoco era un familiar; en realidad, podría decirse que apenas la conocía. El enamoramiento es una cosa muy difícil porque, pensaba John, espoleado por la química, te entra prisa por hacer que un desconocido se convierta en un conocido. Hay una especie de frenesí por transformar a alguien que te has encontrado en la calle en un miembro más de tu familia. Hay una ansiedad por convertir en consanguíneo algo que no lo es.
 
 ## La boda de Daisy
 
