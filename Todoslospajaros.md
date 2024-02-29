@@ -24219,8 +24219,8 @@ puede anudarse
 con el de ese alguien.
 Si eso ocurre
 el hilo puede enredarse,
-estirarse,
-tensarse,
+estirarse
+o tensarse
 pero nunca romperse.
 
 Hace cinco años
@@ -24231,7 +24231,7 @@ hasta que nos hemos
 reencontrado.
 
 A pesar de ello,
-aún no nos hemos acostado,
+aún no hemos follado,
 pero entre coqueteos,
 confusiones y risas,
 no sé cómo,
@@ -24240,3 +24240,50 @@ qué nombres tendríamos
 si fuéramos estrellas del porno:
 Yo sería Evan LeGrand
 y ella Jenna Diamond.
+
+Menos mal
+que me he reencontrado con Gemma,
+porque si nunca hubiera pasado
+me hubiera convertido
+en una de esas personas
+que solo han visto el mar
+por televisión.
+
+Debo confesar
+que, aunque no tengo prisa,
+Evan LeGrand
+no puede parar de pensar
+en cómo será
+su primer encuentro con Jenna Diamond.
+
+¿Será en su casa?
+Estaremos viendo
+Mujeres Desesperadas
+mientras le acaricio las piernas
+como acariciaría a un gato
+que por fin
+no me produjese alergia,
+cuando quizá me tome de la mano
+y me arrastre hasta su cama:
+¡Tú, Evan LeGrand!
+Hoy, para cenar,
+hay coño de Jenna Diamond.
+Sería glorioso.
+Sé que me convertiré
+en un perro bueno
+el día que lama ese coño.
+Cuando ella se estremezca
+y esté a punto de terminar
+me incorporaré
+y la penetraré
+para convertirnos
+en dos astronautas
+que llegan juntos a la base.
+
+
+
+
+
+Perruna segunda.
+Anómalo como un niño
+Que cuenta los días.
