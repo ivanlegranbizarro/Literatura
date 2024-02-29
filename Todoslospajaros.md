@@ -24198,3 +24198,45 @@ seremos tan felices
 que confundiremos
 los tomates cherry del supermercado
 con narices de payaso.
+
+
+
+
+
+## Mi primera vez con Jenna Diamond
+
+Hay una leyenda china
+que narra
+que todos nacemos con un hilo rojo
+muy fino, casi invisible
+atado al final
+de nuestro dedo meñique.
+Muy de vez en cuando
+cuando nos topamos
+con alguien muy especial
+ese hilo rojo
+puede anudarse
+con el de ese alguien.
+Si eso ocurre
+el hilo puede enredarse,
+estirarse,
+tensarse,
+pero nunca romperse.
+
+Hace cinco años
+que Gemma y yo
+hemos ido estirando
+ese hilo rojo
+hasta que nos hemos
+reencontrado.
+
+A pesar de ello,
+aún no nos hemos acostado,
+pero entre coqueteos,
+confusiones y risas,
+no sé cómo,
+hemos descubierto
+qué nombres tendríamos
+si fuéramos estrellas del porno:
+Yo sería Evan LeGrand
+y ella Jenna Diamond.
