@@ -24299,4 +24299,4 @@ mientras le lanzo
 una mirada dócil, perruna
 esperando pacientemente
 para saber cómo será
-nuestro viaje a la luna.
+nuestro primer viaje a la luna.
