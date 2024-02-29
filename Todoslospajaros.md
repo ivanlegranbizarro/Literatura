@@ -24268,11 +24268,11 @@ cuando quizá me tome de la mano
 y me arrastre hasta su cama:
 ¡Tú, Evan LeGrand!
 Hoy, para cenar,
-hay coño de Jenna Diamond.
+cenarás coño.
 
 Sería glorioso.
 Sé que me convertiré
-en un perro bueno
+en un perro muy bueno
 el día que lama ese coño.
 Cuando ella
 se estremezca
@@ -24297,6 +24297,6 @@ se nos enrede demasiado.
 Yo prometo dejarme llevar
 mientras le lanzo
 una mirada dócil, perruna
-mientras espero impaciente
+esperando pacientemente
 para saber cómo será
-nuestro viaje  a la luna.
+nuestro viaje a la luna.
