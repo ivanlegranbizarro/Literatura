@@ -24232,7 +24232,7 @@ reencontrado.
 
 A pesar de ello,
 aún no hemos follado,
-pero entre coqueteos,
+pero entre insinuaciones,
 confusiones y risas,
 no sé cómo,
 hemos descubierto
@@ -24250,11 +24250,12 @@ que solo han visto el mar
 por televisión.
 
 Debo confesar
-que, aunque no tengo prisa,
+que, aunque no tenga prisa,
 Evan LeGrand
 no puede parar de pensar
 en cómo será
-su primer encuentro con Jenna Diamond.
+su primer encuentro
+con Jenna Diamond.
 
 ¿Será en su casa?
 Estaremos viendo
@@ -24268,22 +24269,34 @@ y me arrastre hasta su cama:
 ¡Tú, Evan LeGrand!
 Hoy, para cenar,
 hay coño de Jenna Diamond.
+
 Sería glorioso.
 Sé que me convertiré
 en un perro bueno
 el día que lama ese coño.
-Cuando ella se estremezca
+Cuando ella
+se estremezca
 y esté a punto de terminar
 me incorporaré
 y la penetraré
 para convertirnos
 en dos astronautas
-que llegan juntos a la base.
+que aterrizan juntos
+en la misma base.
 
-
-
-
-
-Perruna segunda.
-Anómalo como un niño
-Que cuenta los días.
+Bromas aparte,
+lo mejor que puede pasar,
+cuando sea
+que tenga que pasar,
+es que Gemma
+me tome de la mano
+y, recordando este poema,
+me conduzca hasta su cama
+sin que el hilo rojo
+se nos enrede demasiado.
+Yo prometo dejarme llevar
+mientras le lanzo
+una mirada dócil, perruna
+mientras espero impaciente
+para saber cómo será
+nuestro viaje  a la luna.
