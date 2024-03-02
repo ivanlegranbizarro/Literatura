@@ -24300,3 +24300,10 @@ una mirada dócil, perruna
 esperando pacientemente
 para saber cómo será
 nuestro primer viaje a la luna.
+
+
+
+
+## Pirotecnia. Love letter. Preparativos
+
+### Pirotecnia
