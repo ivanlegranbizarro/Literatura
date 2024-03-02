@@ -24304,6 +24304,84 @@ nuestro primer viaje a la luna.
 
 
 
-## Pirotecnia. Love letter. Preparativos
+## Pirotecnia. Love letter
 
 ### Pirotecnia
+
+Si por mí fuera,
+cada día le pondría
+un mote nuevo a Gemma.
+Pero como creo
+que le parecen cursis,
+excesivos,
+o inapropiados,
+voy a apilarlos todos
+en este carro
+de fuegos artificiales
+para irlos usando
+poco a poco:
+
+Hermione de mi Hogwarts.
+Atuncita de mi piscifactoría.
+Eclipsadora de Beyoncés.
+Doble de acción
+de Sandra Bullock.
+Criptonita de mis supermanes.
+Smoohtie mío
+en un barco
+de marineros con escorbuto.
+Sonriente maestra de pueblo
+para este hombre bruto.
+
+### Love letter
+
+Ya sé que eres una persona normal.
+Pero también sé
+que para mí no lo eres.
+Da igual el motivo:
+química,
+mística,
+enamoramiento o el hilo
+rojo del destino.
+La cosa es que iría contigo
+a pasear al perro de tu madre,
+igual que te acompañaría
+a que el médico te recetase jarabe
+para la tos.
+
+Me gusta que seas clown.
+Me gusta que viajes
+y que estudies psicología.
+Me gusta que tengas tantos
+amigos y amigas
+y que me envíes audios
+contándome
+lo que te depara el día.
+
+Todo lo que me dices
+resuena en mí
+de manera casi incesante.
+
+Si me das una buena noticia,
+se encienden
+todas las luces de mi casa.
+Si me cuentas que se te ha muerto
+un profesor,
+un coche arranca
+y del tubo de escape
+sale un humo negro
+que se me mete en los pulmones.
+
+Necesito que esta primavera
+seamos dulces y ramplones
+como niños que juegan
+con parches en el ojo
+y con espadas de madera.
+
+No.
+Acabo de mentirte
+sin querer, Gemma,
+Hermione de mi Hogwarts.
+Necesitar,
+lo único que necesito,
+es que seamos.
