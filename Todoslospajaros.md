@@ -24507,8 +24507,8 @@ hay un salmón
 esperándote en mi congelador.
 
 Tengo preparada
-una sábana para echársela al sofá
-por si en mitad de la noche
+una sábana para exiliarme al sofá
+si en mitad de la noche
 mis ronquidos no te dejan en paz.
 
 He comprado las Ruffles jamón
