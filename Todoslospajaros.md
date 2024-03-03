@@ -24385,3 +24385,142 @@ Hermione de mi Hogwarts.
 Necesitar,
 lo único que necesito,
 es que seamos.
+
+
+
+
+
+## Lo que ignoro. Lo que quiero. Lo que sé. Los preparativos
+
+### Lo que ignoro
+
+Me parece más humilde comenzar
+por todas las cosas de ti
+que no sé.
+
+No sé cómo son tus pies
+ni creo
+que vaya a saberlo pronto.
+
+¿Cómo son tus pezones?
+¿Rosados, incoloros,
+marrones?
+¿Son lisos y pequeños como tachuelas
+o grandes y rugosos
+como una Marbú Dorada?
+
+No tengo ni la más remota idea
+de cómo es tu ombligo.
+¿Tiene forma de T?
+¿Es solo una discreta línea recta
+que apenas recuerda
+que tú también fuiste una mamífera
+que estuvo muy unida a su madre?
+
+No sé lo suficiente
+sobre tus hermanas.
+¿Son buenas personas?
+¿O son de esa gente
+que devuelve los libros
+con las esquinas dobladas?
+
+### Lo que quiero
+
+Quiero que me echen por encima
+una palada con tu presencia.
+Quiero tu montón de carne y de calor
+en mi sofá conmigo.
+Quiero que nos esposen juntos
+como si ambos fuéramos
+los protagonistas de un telefilme de acción
+de domingo por la tarde,
+en el que transcurre mucho tiempo
+hasta que encuentran la llave.
+Quiero que sea verano
+y que haga calor.
+Quiero que nos maridemos juntos
+en alguna estancia privada
+hasta que hagamos un solo potaje
+con nuestras
+dos intimidades.
+
+Quiero que me creas
+cuando te diga
+que para mí el amor
+no es más
+que la promesa
+de sobrevalorarte
+de ahora en adelante
+y para siempre.
+
+### Lo que sé
+
+Sé que mis rodillas
+son las de un gordo
+que se ha caído
+muchas veces de la bici.
+Mis rodillas
+son prácticamente
+la mesa de un herrero.
+Son irregulares,
+heridas,
+yo diría
+que incluso un poco lunares.
+En cambio,
+las tuyas
+son tan breves, lisas
+y redondas
+como huesecillos
+de frutos del bosque.
+
+Sé que cuando sonríes
+cambia la dirección de iluminación
+y, durante un instante,
+aún más breve y redondo
+que tus rodillas,
+las sombras de cualquier estancia
+pasan desapercibidas.
+
+He visto a niños pequeños saliendo
+de la piscina municipal
+con los ojos rojos
+y olor a cloro,
+y sé que tengo muchas ganas
+de decirles
+que si ahora
+se frotan los ojos
+como pequeños duendes
+asombrados,
+esperen a ver qué pasa
+cuando me vean
+pasear con Gemma
+por las calles
+de esta ciudad
+incapaz de creérsela.
+
+### Los preparativos
+
+Por si alguna vez vienes,
+hay un salmón
+esperándote en mi congelador.
+
+Tengo preparada
+una sábana para echársela al sofá
+por si en mitad de la noche
+mis ronquidos no te dejan en paz.
+
+He comprado las Ruffles jamón
+con la fecha de caducidad
+más lejana
+para que no te sientas obligada
+a venir pronto a mi casa.
+
+Tengo ambientador.
+Tengo un horno.
+Una estufa.
+Un ventilador
+y el fantasma de un padre
+que ha prometido
+quedarse calladito
+en el armario de sus cenizas
+si vienes a visitarme.
