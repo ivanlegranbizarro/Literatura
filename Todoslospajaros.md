@@ -24476,7 +24476,7 @@ de jugar el río.
 
 
 Sé que cuando sonríes
-cambia la dirección de iluminación
+cambia la iluminación
 y, durante un instante,
 aún más breve y redondo
 que tus rodillas,
