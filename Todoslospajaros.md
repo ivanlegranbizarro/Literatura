@@ -24470,8 +24470,10 @@ En cambio,
 las tuyas
 son tan breves, lisas
 y redondas
-como huesecillos
-de frutos del bosque.
+como piedras
+con las que ya se cansó
+de jugar el río.
+
 
 Sé que cuando sonríes
 cambia la dirección de iluminación
