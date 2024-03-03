@@ -24524,6 +24524,6 @@ Un ventilador
 y el fantasma de un padre
 que ha prometido
 quedarse callado
-en el armario de sus cenizas
-si alguna vez
-vienes a visitarnos.
+en el armario donde guardo
+sus cenizas
+cuando vengas a visitarnos.
