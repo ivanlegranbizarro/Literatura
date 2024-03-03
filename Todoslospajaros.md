@@ -24523,6 +24523,7 @@ Una estufa.
 Un ventilador
 y el fantasma de un padre
 que ha prometido
-quedarse calladito
+quedarse calladado
 en el armario de sus cenizas
-si vienes a visitarme.
+si alguna vez
+vienes a visitarnos.
