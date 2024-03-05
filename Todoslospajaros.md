@@ -24527,3 +24527,159 @@ que ha prometido
 quedarse callado
 cuando vengas
 a visitarnos.
+
+
+
+
+
+## Úsalo. Fechar la angustia. El libro del gato ha mejorado
+
+### Úsalo
+Para qué quieres
+mi corazón,
+si apenas lo usas.
+Y eso
+que mi corazón
+sirve para todo.
+Para filar
+los cuchillos romos
+de tu casa,
+e incluso
+para alumbrar
+la alucinada oscuridad
+de tus estancias.
+
+### Fechar la angustia
+Sabes, Gemma,
+puedo fechar
+a una edad muy temprana
+la primera vez
+que sentí verdadera angustia.
+
+Yo tenía 7 años
+y había pedido para Navidad
+que me regalaran
+esas bambas
+que estaban tan de moda
+entre los niños de la época:
+unas bambas
+que cuando caminabas
+emitían destellos de luz
+en los talones.
+
+Cuando las estrené
+no podía parar de mirar
+hacia atrás
+para tratar de captar
+el multicolor
+de los fulgores.
+Durante la primera semana
+de año nuevo
+casi me atropella un coche.
+
+Al mes de estrenarlas
+empecé a darme cuenta
+de lo que más tarde
+se convertiría en el germen
+de mi primer sentimiento
+de auténtica angustia:
+las luces de las bambas
+cada vez
+destellaban con menos fuerza.
+
+Las bambas me duraron
+más de seis meses,
+pero nunca pude disfrutarlas
+porque siempre estuve más pendiente
+de la caducidad de sus luces
+que del brillo
+que continuaban
+emitiendo.
+
+A veces apuro
+los últimos ecos
+de una carcajada tuya,
+mientras me pregunto
+si continúo siendo
+el mismo niño
+que no sabe disfrutar
+de las cosas
+que todavía brillan.
+
+### El libro del gato ha mejorado
+Mientras esperábamos,
+muy apropiadamente,
+en la sala de espera del hospital,
+te conté que estaba leyendo
+un libro japonés
+sobre un hombre que viaja con su gato.
+
+Te dije que cada vez
+empatizo menos con el arte oriental
+y que el libro me estaba pareciendo malo.
+Por ejemplo, el protagonista
+se reúne con un amigo de la infancia
+cuyos padres se habían divorciado
+y le dice algo como:
+'Eras digo de mucha lástima.
+No debe de ser fácil
+soportar el divorcio
+de unos padres'.
+Su amigo, sorprendido, le dice:
+'Pero si tus padres
+ya se habían muerto cuando
+cuando los míos se separaron...'.
+Lo mejor
+es que no pretende ser gracioso:
+los japoneses compiten
+por ver quién es menos
+digno de lástima.
+
+Aun así, seguí con el libro.
+El protagonista continúa viajando
+con su gato
+y al final recala en el hostal
+que regenta otro viejo amigo
+de la infancia.
+Por alguna extraña razón
+que todavía no se ha explicado
+el prota le va preguntando
+a todos los amigos
+con los que se ha ido
+topando durante su viaje
+si podrían quedarse con su gato.
+Ninguno parece reunir
+las condiciones idóneas
+para quedarse con Nana,
+el gato de esta historia.
+
+El amigo que regenta el hostal
+tiene un perro que se llama Tomomaro
+y nada más olisquear al gato
+se abalanza sobre él
+y ladrando, le dice esto:
+'Largaos tú y tu dueño.
+No te quedes a vivir con nosotros.
+Si te quedas
+mi dueño se pondrá muy triste
+recordando al tuyo
+dentro de poco'.
+
+La cosa está, Gemma,
+en que en este libro
+se insinúa
+que los perros huelen
+a las personas
+a las que les acecha la muerte.
+
+Esto me hace pensar
+en que ojalá mi padre
+no estuviera contenido en una urna.
+Me gustaría que estuviera enterrado.
+Que tuviera una tumba
+que yo pudiera limpiarla
+y llenarle de flores.
+Aquí, en casa,
+como ya pasaba
+cuando estaba vivo,
+sé que nunca charlaremos.
