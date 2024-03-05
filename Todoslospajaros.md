@@ -24541,7 +24541,7 @@ si apenas lo usas.
 Y eso
 que mi corazón
 sirve para todo.
-Para filar
+Para afilar
 los cuchillos romos
 de tu casa,
 e incluso
@@ -24571,10 +24571,10 @@ Cuando las estrené
 no podía parar de mirar
 hacia atrás
 para tratar de captar
-el multicolor
-de los fulgores.
+el resplandor multicolor
+de esos fulgores.
 Durante la primera semana
-de año nuevo
+de Año Nuevo
 casi me atropella un coche.
 
 Al mes de estrenarlas
@@ -24582,16 +24582,16 @@ empecé a darme cuenta
 de lo que más tarde
 se convertiría en el germen
 de mi primer sentimiento
-de auténtica angustia:
+de verdadera angustia:
 las luces de las bambas
 cada vez
-destellaban con menos fuerza.
+destellaban más débilmente.
 
 Las bambas me duraron
 más de seis meses,
 pero nunca pude disfrutarlas
 porque siempre estuve más pendiente
-de la caducidad de sus luces
+de la caducidad de sus luces,
 que del brillo
 que continuaban
 emitiendo.
@@ -24601,7 +24601,7 @@ los últimos ecos
 de una carcajada tuya,
 mientras me pregunto
 si continúo siendo
-el mismo niño
+el mismo niño de 7 años
 que no sabe disfrutar
 de las cosas
 que todavía brillan.
@@ -24612,10 +24612,11 @@ muy apropiadamente,
 en la sala de espera del hospital,
 te conté que estaba leyendo
 un libro japonés
-sobre un hombre que viaja con su gato.
+sobre un hombre
+que emprende un viaje con su gato.
 
 Te dije que cada vez
-empatizo menos con el arte oriental
+empatizo menos con el arte japonés
 y que el libro me estaba pareciendo malo.
 Por ejemplo, el protagonista
 se reúne con un amigo de la infancia
@@ -24625,15 +24626,15 @@ y le dice algo como:
 No debe de ser fácil
 soportar el divorcio
 de unos padres'.
-Su amigo, sorprendido, le dice:
+Su amigo, sorprendido, le repone:
 'Pero si tus padres
 ya se habían muerto cuando
 cuando los míos se separaron...'.
 Lo mejor
 es que no pretende ser gracioso:
 los japoneses compiten
-por ver quién es menos
-digno de lástima.
+cuál de ellos
+es menos digno de lástima.
 
 Aun así, seguí con el libro.
 El protagonista continúa viajando
@@ -24641,8 +24642,8 @@ con su gato
 y al final recala en el hostal
 que regenta otro viejo amigo
 de la infancia.
-Por alguna extraña razón
-que todavía no se ha explicado
+Por alguna extraña razón,
+que todavía no se ha explicado,
 el prota le va preguntando
 a todos los amigos
 con los que se ha ido
@@ -24655,31 +24656,42 @@ el gato de esta historia.
 
 El amigo que regenta el hostal
 tiene un perro que se llama Tomomaro
-y nada más olisquear al gato
-se abalanza sobre él
-y ladrando, le dice esto:
+y nada más olisquear la llegada
+del hombre con el gato
+se abalanza sobre ellos
+y ladrando en un idioma
+que solo son capaces
+de comprender las mascotas
+les suelta esto:
 'Largaos tú y tu dueño.
-No te quedes a vivir con nosotros.
+No te quedes a vivir con nosotros,
+gato asqueroso.
 Si te quedas
 mi dueño se pondrá muy triste
 recordando al tuyo
-dentro de poco'.
+dentro de muy poco'.
 
 La cosa está, Gemma,
 en que en este libro
 se insinúa
 que los perros huelen
 a las personas
-a las que les acecha la muerte.
+a las que les empieza
+a acechar la muerte.
 
 Esto me hace pensar
 en que ojalá mi padre
 no estuviera contenido en una urna.
-Me gustaría que estuviera enterrado.
+Me refiero
+a que preferiría que estuviera enterrado.
 Que tuviera una tumba
-que yo pudiera limpiarla
-y llenarle de flores.
+que yo pudiera limpiar
+y llenar de flores
+mientras charlamos.
+
 Aquí, en casa,
 como ya pasaba
 cuando estaba vivo,
-sé que nunca charlaremos.
+sé que nunca
+nos dirigiremos
+ni media palabra.
