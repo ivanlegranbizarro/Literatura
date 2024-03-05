@@ -24686,21 +24686,39 @@ se insinúa
 que los perros huelen
 a las personas
 a las que les empieza
-a acechar la muerte.
+a rondar la muerte.
 
 Esto me hace pensar
-en que ojalá mi padre
-no estuviera contenido en una urna.
-Me refiero
-a que preferiría que estuviera enterrado.
-Que tuviera una tumba
-que yo pudiera limpiar
-y llenar de flores
-mientras charlamos.
+en que ojalá
+no hubiésemos incinerado
+a mi padre.
+Preferiría tenerle en una tumba
+del cementerio
+antes que 'viviendo' su muerte
+en mi casa.
 
-Aquí, en casa,
+Yo le visitaría,
+limpiaría su lápida,
+le pondría al día
+y hasta cambiaría
+la última flor marchita
+por otra fresca.
+Incluso puede
+que un Domingo de Ramos
+te pidiera
+que te pusieras guapa,
+para restregarle
+por las narices a mi padre
+a la mujer
+con la que me gustaría casarme.
+
+Pero aquí, en casa,
 como ya pasaba
 cuando estaba vivo,
 sé que nunca
 nos dirigiremos
-ni media palabra.
+ni media palabra,
+a excepción
+de los ruidos
+y las quejas
+que emita su fantasma.
