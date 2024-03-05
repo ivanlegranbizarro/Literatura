@@ -24623,13 +24623,13 @@ se reúne con un viejo amigo de la infancia,
 cuyos padres se habían divorciado
 cuando ambos estaban en primaria,
 y le dice algo como:
-'Eras digo de mucha lástima.
+'Eras digno de mucha lástima.
 No debe de ser fácil
 sobrellevar el divorcio
 de unos padres'.
 Su amigo, sorprendido, le responde:
 'Pero si tus padres
-ya se habían muerto cuando
+ya se habían muerto
 cuando los míos se separaron...'.
 A lo que nuestro protagonista repone:
 'Ya. Pero mientras vivían
