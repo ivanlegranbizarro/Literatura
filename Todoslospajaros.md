@@ -24619,20 +24619,29 @@ Te dije que cada vez
 empatizo menos con el arte japonés
 y que el libro me estaba pareciendo malo.
 Por ejemplo, el protagonista
-se reúne con un amigo de la infancia
+se reúne con un viejo amigo de la infancia,
 cuyos padres se habían divorciado
+cuando ambos estaban en primaria,
 y le dice algo como:
 'Eras digo de mucha lástima.
 No debe de ser fácil
-soportar el divorcio
+sobrellevar el divorcio
 de unos padres'.
-Su amigo, sorprendido, le repone:
+Su amigo, sorprendido, le responde:
 'Pero si tus padres
 ya se habían muerto cuando
 cuando los míos se separaron...'.
+A lo que nuestro protagonista repone:
+'Ya. Pero mientras vivían
+se llevaban bien
+y me querían mucho.
+¿Puedes tú
+decir lo mismo?'.
+
 Lo mejor
 es que no pretende ser gracioso:
 los japoneses compiten
+por saber
 cuál de ellos
 es menos digno de lástima.
 
@@ -24640,7 +24649,7 @@ Aun así, seguí con el libro.
 El protagonista continúa viajando
 con su gato
 y al final recala en el hostal
-que regenta otro viejo amigo
+que regenta otro amigo
 de la infancia.
 Por alguna extraña razón,
 que todavía no se ha explicado,
@@ -24663,13 +24672,13 @@ y ladrando en un idioma
 que solo son capaces
 de comprender las mascotas
 les suelta esto:
-'Largaos tú y tu dueño.
+'¡Largaos tú y tu dueño.
 No te quedes a vivir con nosotros,
 gato asqueroso.
 Si te quedas
 mi dueño se pondrá muy triste
 recordando al tuyo
-dentro de muy poco'.
+dentro de muy poco!'.
 
 La cosa está, Gemma,
 en que en este libro
