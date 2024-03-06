@@ -24686,12 +24686,18 @@ dentro de muy poco!'.
 La cosa está, Gemma,
 en que en este libro
 se insinúa
-que los perros huelen
+que los perros distinguir
 a las personas
-a las que les empieza
-a rondar la muerte.
+a las que la muerte
+empieza a perseguir.
 
-Esto me hace pensar
+Así que el viaje
+no es otra cosa
+que la preocupación
+de un hombre moribundo
+por el futuro de su mascota.
+
+Esto me lleva a pensar
 en que ojalá
 no hubiésemos incinerado
 a mi padre.
