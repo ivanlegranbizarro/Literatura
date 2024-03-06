@@ -70,7 +70,8 @@ haciéndote creer
 que cruzas líneas de meta.
 
 La electricidad de la juventud,
-el momento en que pasas frente a la casa de alguien a quien quisiste y murió
+el momento en que pasas frente a la casa de alguien
+a quien quisiste y murió
 y un desconocido
 vuelve a encender las luces.
 
@@ -96,12 +97,14 @@ trazas de ti.
 _(Prólogo a la segunda edición)_
 
 En las películas
-grandes ciudades hambrientas de todo giran los rodillos de sus imprentas
+grandes ciudades hambrientas de todo
+giran los rodillos de sus imprentas
 y escupen periódicos y libros
 a una velocidad frenética.
 
 Sin embargo, en este caso,
-más bien debéis imaginaros a un chaval con un pijama manchado de soledad
+más bien debéis imaginaros a un chaval
+con un pijama manchado de soledad
 y con una impresora
 que solo gasta
 cartuchos de tinta negra.
