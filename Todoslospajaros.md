@@ -24733,4 +24733,42 @@ de los ruidos
 y las quejas
 que emita su fantasma.
 
-## Pasar la noche con Gemma. Review de sus pechos. Freud.
+## La noche con Gemma. Review de sus pechos. Freud.
+
+Me encanta ir a casa de Gemma,
+aunque siempre
+se me olvide
+quitarme los zapatos al entrar.
+Ojalá se me olvidaran al salir
+para así
+tener que volver
+con las orejas gachas,
+a pedírselos
+mientras le robo otro beso.
+
+Después de recibir
+la reprimenda que merezco,
+me quito los zapatos sonriendo,
+con el corazón reelectrificado
+y sabiendo
+que el amor
+vuelve a ser
+esta conducción temeraria
+hacia la primavera.
+
+Gemma siempre me pide
+que no me asuste por el desorden
+de su casa.
+Pero yo siempre le digo
+que ya he entendido
+que su casa
+es la casa de una chica que viaja
+y que es capaz,
+en cualquier momento,
+de meter media vida
+en una maleta.
+
+Anoche
+su cara
+guapeaba la noche
+mientras nos fuimos a su cama.
