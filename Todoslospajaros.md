@@ -24328,7 +24328,8 @@ Hermione de mi Hogwarts.
 Atuncita de mi piscifactoría.
 Eclipsadora de Beyoncés.
 Doble de acción
-de Sandra Bullock.
+de Angelina Jolie
+interpretando a Lara Croft.
 Criptonita de mis supermanes.
 Smoohtie mío
 en un barco
@@ -24731,3 +24732,5 @@ a excepción
 de los ruidos
 y las quejas
 que emita su fantasma.
+
+## Pasar la noche con Gemma. Review de sus pechos. Freud.
