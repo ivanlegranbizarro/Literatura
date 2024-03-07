@@ -24759,7 +24759,8 @@ y sabiendo
 que el amor
 vuelve a ser
 esta conducción temeraria
-hacia la primavera.
+hacia el desastre
+o la primavera.
 
 Gemma siempre me pide
 que no me asuste por el desorden
