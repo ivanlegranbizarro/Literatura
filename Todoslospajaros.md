@@ -24772,7 +24772,8 @@ y que es capaz,
 en cualquier momento,
 de meter media vida
 en una maleta
-en busca de la otra media.
+para salir en busca
+de la otra media.
 
 Anoche
 su cara
@@ -24785,7 +24786,7 @@ de dos animales
 que han perdido
 demasiado tiempo,
 sino también
-la de dos amantes
+la de dos jóvenes amantes
 que se iban
 poblando de sentimientos.
 
