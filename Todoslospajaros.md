@@ -24785,7 +24785,7 @@ Anoche
 no fue solo la noche
 de dos animales
 que han perdido
-demasiado tiempo,
+demasiado el tiempo,
 sino también
 la de dos jóvenes amantes
 que se iban
