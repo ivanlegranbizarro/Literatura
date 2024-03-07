@@ -24733,12 +24733,17 @@ de los ruidos
 y las quejas
 que emita su fantasma.
 
-## La noche con Gemma. Review de sus pechos. Freud.
+
+
+
+
+## La noche con Gemma
 
 Me encanta ir a casa de Gemma,
 aunque siempre
 se me olvide
 quitarme los zapatos al entrar.
+
 Ojalá se me olvidaran al salir
 para así
 tener que volver
@@ -24759,7 +24764,7 @@ hacia la primavera.
 Gemma siempre me pide
 que no me asuste por el desorden
 de su casa.
-Pero yo siempre le digo
+Yo siempre le digo
 que ya he entendido
 que su casa
 es la casa de una chica que viaja
@@ -24772,3 +24777,51 @@ Anoche
 su cara
 guapeaba la noche
 mientras nos fuimos a su cama.
+
+Anoche
+no fue solo la noche
+de dos animales
+que han perdido
+demasiado tiempo,
+sino también
+la de dos amantes
+que se iban
+poblando de sentimientos.
+
+Anoche
+me crecieron las uñas y la barba
+más que en varias semanas.
+Creo que se debe
+a que en varias horas,
+ocurrieron cosas
+que llevaban años
+deseando ocurrir.
+
+Las tetas de Gemma
+son perfectas.
+No son pequeñas
+ni demasiado grandes;
+con un poco de esfuerzo,
+puedo meterme
+medio pecho en la boca.
+Los pezones y las aureolas
+no son demasiado rugosos.
+Y lo mejor de todo
+es que, mientras le chupaba las tetas,
+Gemma iba retransmitiendo para mí
+crónicas íntimas,
+en voz baja,
+sobre su vida pasada.
+
+Noches así
+podrían convertirse
+con mucha facilidad
+en una artículo de primera necesidad
+para mí.
+
+Ahora, en el ordenador,
+mientras tecleo esto,
+me olfateo los dedos
+buscando un jirón
+del olor de su coño
+que me haga sonreír.
