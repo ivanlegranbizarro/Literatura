@@ -24771,7 +24771,8 @@ es la casa de una chica que viaja
 y que es capaz,
 en cualquier momento,
 de meter media vida
-en una maleta.
+en una maleta
+en busca de la otra media.
 
 Anoche
 su cara
