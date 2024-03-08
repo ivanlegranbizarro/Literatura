@@ -24825,6 +24825,5 @@ para mí.
 Ahora, en el ordenador,
 mientras tecleo esto,
 me olfateo los dedos
-buscando un jirón
-del olor de su coño
-que me haga sonreír.
+buscando un poco de su coño
+para sonreír.
