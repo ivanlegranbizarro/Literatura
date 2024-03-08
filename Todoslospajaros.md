@@ -24827,3 +24827,112 @@ mientras tecleo esto,
 me olfateo los dedos
 buscando un poco de su coño
 para sonreír.
+
+
+
+
+
+## Protocolo para detectar falsas Gemmas
+
+¿Desde cuándo soy tan rompedizo?
+Cualquier cosa
+que frustre o hiera
+a Gemma
+me duele en tiempo real
+e incluso a veces,
+en un tiempo irreal
+que transcurre en este mundo
+de las cosas que no transcurren.
+
+Pero tampoco hay que ser injustos.
+Acurrucada tras mis dientes
+siempre hay una partitura alegre
+para Gemma.
+Y, cuando estoy con ella,
+siempre sonrío
+como sonríe la gente que se cuida
+y come bien.
+
+Cuántas miradas furtivas,
+primitivas y urgentes
+le lanzo a Gemma
+sin que ella sepa
+que todo lo que hace hiere
+para bien
+y para mal
+la sensibilidad
+de este espectador.
+
+Ayer estábamos en su cama
+por primera vez
+y de la ventana de su habitación
+entraba una luz lunática
+desde el patio de luces.
+Parecíamos dos gitanos de plata
+que se han escapado de casa
+para hacer el amor
+en la pradera.
+
+Hablamos de nuestras familias,
+de nuestros ex,
+y quizá con suerte
+y sin saberlo
+hayamos empezado
+a entrelazar un poco
+nuestras vidas.
+Ayer la besé
+por todas las partes
+y por todos los años
+en que no he podido besarla.
+Creo que le toqué
+todos los puntos del cuerpo
+con los dedos,
+como el ascensorista
+recién contratado
+de un hotel de lujo
+que necesita comprobar
+a qué magníficas estancias
+podrían conducirle
+todos y cada uno
+de esos botones.
+
+En un determinado punto
+de la noche
+le confesé a Gemma
+que a mí no me atraen la idea
+de hacer ningún trío.
+Que solo haría uno
+si pudiéramos clonarla a ella.
+
+Ella me dijo que vale,
+que aceptaba ser clonada,
+pero que se enfadaría mucho
+si luego soy incapaz
+de distinguirla de su copia.
+
+Y entonces me sobrevino
+una idea febril y maravillosa:
+'¿Trazamos un protocolo
+para la detección de falsas Gemmas?'
+le propuse.
+'¡VALEEEE!' me repuso.
+
+La combinación que establecimos
+es esta:
+le chupo
+el pecho izquierdo.
+Luego le chupo el derecho
+y, por último,
+le vuelvo a chupar el izquierdo.
+Al hacerlo
+Gemma emitirá un sonido
+para demostrar su autenticidad.
+
+Ahora
+me muero de miedo,
+en tiempo real
+e irreal,
+de que llegue el día
+en que vuelva a acostarme con Gemma
+y ella olvide
+o no sepa ejecutar nuestra señal.
