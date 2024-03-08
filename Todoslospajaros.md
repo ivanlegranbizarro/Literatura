@@ -24899,7 +24899,7 @@ de esos botones.
 En un determinado punto
 de la noche
 le confesé a Gemma
-que a mí no me atraen la idea
+que a mí no me atrae la idea
 de hacer ningún trío.
 Que solo haría uno
 si pudiéramos clonarla a ella.
