@@ -24925,7 +24925,7 @@ Luego le chupo el derecho
 y, por último,
 le vuelvo a chupar el izquierdo.
 Al hacerlo
-Gemma emitirá un sonido
+Gemma emitirá un determinado sonido
 para demostrar su autenticidad.
 
 Ahora
