@@ -24974,11 +24974,12 @@ que nos merecemos.
 
 Somos Robinsones
 explorando la isla
-en la que acabamos de naufragar,
-para localizar
-en qué sitios
-podemos obtener
-agua y comida.
+en la que hemos naufragado,
+dándonos cuenta
+de que estamos encerrados
+en un sitio
+en el que somos
+radicalmente libres.
 
 Somos dos
 estrellas del porno
