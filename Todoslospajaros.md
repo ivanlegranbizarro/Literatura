@@ -24936,3 +24936,62 @@ de que llegue el día
 en que vuelva a acostarme con Gemma
 y ella olvide
 o no sepa ejecutar nuestra señal.
+
+
+
+
+
+## Somos
+
+Somos
+para el otro
+su juguete más nuevo.
+
+Olfateamos aquí, tocamos allá,
+examinamos bajo una lámpara
+esto del otro
+que nos parece
+particularmente especial,
+mientras la tele del salón
+predica en vano
+con noticiarios anticlimáticos
+sobre un mundo
+que ahora mismo
+no es el nuestro.
+
+Somos esos chimpancés
+que se desparasitan
+llenos de afecto y simpatía.
+
+Somos dos niños
+que se disfrazaron
+de asesino y de fantasma
+durante el último Halloween,
+para ir cogidos de la mano
+de casa en casa
+exigiendo los caramelos
+que nos merecemos.
+
+Somos Robinsones
+explorando la isla
+en la que acabamos de naufragar,
+para localizar
+en qué sitios
+podemos obtener
+agua y comida.
+
+Somos dos
+estrellas del porno
+contratadas por el mismísimo Cupido
+para hacer el amor
+en los platós
+de televisión
+más cotidianos.
+
+La prensa
+no debería hablar
+del cambio climático
+ni de la guerra,
+sino de que Gemma
+se ha apuntado a un gimnasio nuevo
+y está muy contenta.
