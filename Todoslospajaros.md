@@ -24993,5 +24993,5 @@ no debería hablar
 del cambio climático
 ni de la guerra,
 sino de que Gemma
-se ha apuntado a un gimnasio nuevo
+se ha apuntado a un nuevo gimnasio
 y está muy contenta.
