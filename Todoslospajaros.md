@@ -24982,7 +24982,7 @@ agua y comida.
 
 Somos dos
 estrellas del porno
-contratadas por el mismísimo Cupido
+contratadas por el mismísimo Cupido,
 para hacer el amor
 en los platós
 de televisión
