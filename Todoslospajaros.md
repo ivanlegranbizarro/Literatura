@@ -24947,7 +24947,7 @@ Somos
 para el otro
 su juguete más nuevo.
 
-Olfateamos aquí, tocamos allá,
+Olfateamos aquí, lamemos allá,
 examinamos bajo una lámpara
 esto del otro
 que nos parece
