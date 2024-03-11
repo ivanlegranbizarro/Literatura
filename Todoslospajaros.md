@@ -24996,3 +24996,75 @@ ni de la guerra,
 sino de que Gemma
 se ha apuntado a un nuevo gimnasio
 y está muy contenta.
+
+
+
+
+## Unos días sin ver a Gemma
+
+Mi plan
+es comer pan
+mientras imagino
+que como pan contigo.
+
+No es la muerte, como dicen,
+lo que nos iguala a todos.
+Si no tienes dinero,
+puedes morir antes
+y peor.
+
+El único nivelador
+es el amor.
+
+La aventura más emocionante
+de un hombre
+puede ocurrir en cualquier parte.
+A mí me ocurrió
+en un piso pequeño
+del barrio de Gràcia,
+con pilas de ropa desperdigada.
+
+Daba este fuego
+por apagado.
+Puede, que incluso
+por nunca encendido.
+Y, sin embargo,
+aquí está ardiendo
+a plena combustión contigo.
+
+A veces te acaricio una mejilla,
+o bien
+se me escapa darte
+algún consejo
+sin que me lo pidas,
+y entonces crees
+que trato de tener contigo
+una conversación de padres e hijos,
+cuando en realidad,
+lo que quiero tengamos
+es la extraordinaria conversación
+de dos padres
+que aún no tienen hijos.
+
+Gemma, ya no salgo
+a caminar.
+A lo que salgo
+es a cazar
+el siguiente poema
+que dejaré
+a tus pies.
+
+El otro día, en tu cama:
+'¿Cuál sería
+el nombre ideal
+para una mujer ególatra
+de los Países Bajos?'
+
+'Yo...olanda'.
+
+Es el amor
+el que no entiende
+de escenografías;
+yo, en tu cama,
+podría filmar
+todo el resto de mi vida.
