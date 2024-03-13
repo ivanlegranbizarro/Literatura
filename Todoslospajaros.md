@@ -25073,3 +25073,70 @@ todo el resto de mi vida.
 
 
 ## Varios mejores días de mi vida
+
+Gemma se burla de mí
+cuando le explico
+que acabo de vivir
+el mejor día de mi vida junto a ella.
+Es verdad
+que se lo digo
+dos o tres veces por semana,
+pero ¿hay mayor realización
+que saber que le gustas
+a quien te gusta?
+
+Cuando una de mis bromas
+da en la diana
+y Gemma se rompe entre carcajadas,
+me siento
+como si acabara de ganar un Óscar.
+
+Quiero otra pandemia.
+Me da igual
+cuánta gente muera.
+Quiero pasar un confinamiento con Gemma.
+Salir a su balcón a las ocho,
+y, con mi barba
+oliendo a su coño,
+mirarla a los ojos
+mientras aplaudimos
+a un montón
+de héroes
+que nos dan igual.
+
+Esta semana
+ha muerto Akira Toriyama.
+Algunos de los mejores días
+de mi vida como niño
+fueron viendo sus dibujos,
+después del colegio,
+en casa de mis abuelos,
+mientras la lluvia
+ametrallaba dulcemente
+las plantas
+en el balcón de mi abuela.
+
+Gemma,
+no tengo carné de conducir
+porque si condujese
+creo que sería
+uno de esos conductores pensativos
+que están yendo
+a un sitio con el coche
+y a otro sitio muy distinto
+con su cabeza.
+
+Si ahora tuviera un coche
+siempre estaría conduciendo
+pensativamente
+hacia tu cama, en plena noche,
+cuando la ventana del patio
+nos llena de luna
+mejor que la luna llena
+y, medio a oscuras,
+entre jadeos y risas,
+me vas entregando
+la sinopsis de tu vida,
+mientras tiendes
+un tímido puente
+hacia la mía.
