@@ -25180,11 +25180,13 @@ Pero daba igual.
 Porque en el sueño
 también nos caíamos muy bien
 y al final decidíamos
-ayudar al otro a resolver;
-prometiendo,
+ayudar al otro a resolver
+el panel.
+Prometiendo,
 eso sí,
-que iríamos a medias
-con el premio.
+que Iván y Gemma
+se repartirían el premio
+a medias.
 
 ### La mitad
 
