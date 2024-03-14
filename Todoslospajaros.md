@@ -25158,8 +25158,7 @@ de la ruleta de la fortuna.
 Al entrar en los estudios
 los estilistas pasaban muchos apuros
 para encontrar un traje de mi talla
-y para pensar
-qué maquillaje me aplicaban
+y un maquillaje adecuado
 para mejorar el aspecto de mi cara.
 
 Contigo suspiraron aliviados;
