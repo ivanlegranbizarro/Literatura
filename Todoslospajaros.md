@@ -25140,3 +25140,75 @@ la sinopsis de tu vida,
 mientras tiendes
 un tímido puente
 hacia la mía.
+
+
+
+
+
+## Concursantes. La mitad
+
+### Concursantes
+
+Hoy he soñado
+con que desembarcábamos en Hawái
+para participar allí
+en la final internacional
+de la ruleta de la fortuna.
+
+Al entrar en los estudios
+los estilistas pasaban muchos apuros
+para encontrar un traje de mi talla
+y para pensar
+qué maquillaje me aplicaban
+para mejorar el aspecto de mi cara.
+
+Contigo suspiraron aliviados;
+no te tocaron nada,
+simplemente te pusieron
+al cuello un lei;
+una de esas guirnaldas floridas
+con los que dan la Bienvenida
+a los turistas.
+
+Cuando tú mirabas el panel
+el mensaje cifrado
+estaba en Catalán,
+y cuando lo miraba yo,
+no sé por qué,
+estaba en Castellano.
+
+Pero daba igual.
+Porque en el sueño
+también nos caíamos muy bien
+y al final decidíamos
+ayudar al otro a resolver;
+prometiendo,
+eso sí,
+que iríamos a medias
+con el premio.
+
+### La mitad
+
+Ha vuelto a entrarme algo
+en el ojo izquierdo
+y no se me va.
+He probado ya con todo:
+con agua, con colirios,
+rezándole una oración
+a Santa Lucía
+mientras hago el pino...
+
+La semana pasada
+me pasó lo mismo,
+pero estaba con Gemma,
+ella me sopló suavemente en el ojo
+y enseguida se me pasó todo.
+
+Cuando la gente me pregunta
+por qué lloro tanto
+de un solo ojo,
+le respondo
+que es porque la mitad
+de mí
+te echa de menos
+con frenesí.
