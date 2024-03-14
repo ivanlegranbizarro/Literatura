@@ -25209,7 +25209,7 @@ Cuando la gente me pregunta
 por qué lloro tanto
 de un solo ojo,
 le respondo
-que es porque la mitad
+que es porque una mitad
 de mí
-te echa de menos
+siempre te echa de menos
 con frenesí.
