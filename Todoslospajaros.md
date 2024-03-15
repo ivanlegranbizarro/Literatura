@@ -25248,4 +25248,4 @@ Me río.
 Vamos a buscar
 algo a la nevera
 y mañana
-volvemos a comenzar.
+volvemos a empezar.
