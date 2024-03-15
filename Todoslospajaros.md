@@ -25213,3 +25213,39 @@ que es porque una mitad
 de mí
 siempre te echa de menos
 con frenesí.
+
+
+
+
+## Mañana
+
+Fíjate
+si la vida es increíble
+que uno quiere vivirla
+a pesar
+de que
+en el mejor de los casos
+el tiempo
+desmantelará a tus padres
+poco a poco
+hasta quitártelos
+del todo.
+
+Uno se queda
+con la gente
+que por instantes
+es capaz
+de hacerle olvidar
+que todo va a terminar.
+
+Me gustas
+porque dejo de pensar
+en la muerte
+cuando estoy contigo.
+
+Te ríes.
+Me río.
+Vamos a buscar
+algo a la nevera
+y mañana
+volvemos a comenzar.
