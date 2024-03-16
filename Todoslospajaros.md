@@ -25249,3 +25249,118 @@ Vamos a buscar
 algo a la nevera
 y mañana
 volvemos a empezar.
+
+
+
+
+
+## Futuro fantasma
+
+A veces, Gemma,
+me basta hablar contigo
+para que mi alma sea
+una habitación
+con todas las luces encendidas.
+
+Otras veces,
+me arrepiento
+de no haber tenido un hijo,
+para que en noches como esta
+me entretenga
+pidiéndome que mire
+si hay algún monstruo
+debajo de su cama.
+
+Oigo el siseo
+de este reloj de arena
+que se ha puesto en marcha:
+Cada segundo
+que pasamos juntos
+se desvanece mientras
+se incorpora
+al mundo
+de los grandes recuerdos.
+
+Hoy te he echado tanto de menos
+que he deseado
+tener una foto tuya,
+impresa en papel,
+para tenerla guardada
+en el mismo rincón secreto
+en donde mi madre
+guarda su testamento.
+
+Contigo creo
+que cada día será el último.
+
+Te escribo tantos poemas
+porque necesito transformar
+el terror a perderte
+en un manual
+que poder consultar en el futuro.
+
+Sentirte lejos
+es un tumor muy pesado.
+
+Te miro
+y, en realidad,
+te veo como
+las personas supersticiosas
+dicen que los perros y los gatos
+ven a los fantasmas.
+Estás en el vuelo de las cortinas,
+en las sombras de toda la casa
+y en los productos
+del supermercado,
+que compro pensando
+que estamos jugando
+a una versión más buena
+que la de nuestros padres
+de ser marido
+y mujer.
+
+La manera en que te ríes
+es mi talón de Aquiles.
+Después de oírte reír
+podrías confesarme
+que has matado a alguien
+y yo solo
+te preguntaría,
+con una sonrisa,
+dónde está la pala
+para ayudarte
+a enterrar el cadáver.
+
+Lo sé todo
+sobre nosotros.
+Soy un fanático
+de este tú y yo
+que están
+provisionalmente juntos.
+
+Sé que no me quieres
+como yo te quiero a ti.
+Y también sé
+que me echarás
+salvajemente de menos
+cuando estés
+con alguien
+que no te quiera
+como tú a él.
+
+En los próximos años
+habrá una mosca
+en cada plato de sopa.
+
+Te convertirás
+en la vara
+con la que mediré
+al resto de mujeres,
+hasta que llegue alguien,
+si llega,
+que me recuerde
+lo que hoy sé
+perfectamente:
+el amor,
+cuando ocurre,
+siempre es un accidente.
