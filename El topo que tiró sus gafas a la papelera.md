@@ -89,3 +89,25 @@ Afa: Porque si fuera así, mi hermano mayor se llamaría 'Jir'.
 Sullivan: ¿Y cómo se llama?
 
 Afa: Gir. Un jirafo excelente.
+
+El técnico de sonido vuelve a pinchar más risas enlatadas.
+
+Sullivan: Podría ser peor... Al menos no se llama 'Afo'.
+
+Afa: Claro que no, ¿por qué iban a llamarse igual mis dos hermanos?
+
+Sullivan: Me están entrando unas ganas muy, muy grandes, de volver a mi madriguera, Afa.
+
+Afa: Va, no te enfades. ¿Por qué has tirado las gafas a la papelera?
+
+Sullivan: No me entenderías. Nadie me entiende.
+
+Afa: Prueba yendo al logopeda.
+
+Sullivan: No es eso...
+
+Afa: No te entiendo.
+
+Sullivan: ¿Lo ves?
+
+Afa: Yo sí, ¡eres tú el que ha tirado las gafas a la papelera!
