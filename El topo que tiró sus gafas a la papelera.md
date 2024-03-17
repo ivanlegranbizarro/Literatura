@@ -5,7 +5,7 @@
 
 ## Guía de personajes
 
-# El topo Sulivan: Un joven topo que se niega a utilizar las gafas que le ha prescrito su médico de cabecera.
+# El topo Sullivan: Un joven topo que se niega a utilizar las gafas que le ha prescrito su médico de cabecera.
 
 # La jirafa Afa: Una joven jirafa con el cuello un poco menos largo de lo que debería; a veces tiene dificultades para alcanzar las hojas más altas.
 
@@ -111,3 +111,104 @@ Afa: No te entiendo.
 Sullivan: ¿Lo ves?
 
 Afa: Yo sí, ¡eres tú el que ha tirado las gafas a la papelera!
+
+Sullivan se desespera, se arrodilla en el suelo y emite la versión 'topuna' del grito de Munch.
+
+Sullivan: BASTAAAAAAAAAAAAAAAAAAaaaaaaaaa (en mitad del grito, el técnico de sonido le ha bajado la voz)
+
+Técnico de sonido: Chicos, si discutís así os mutearé, ¿vale? Estáis un poco intensos. Afa, ten piedad del pobre Sullivan. Tú tampoco eres perfecta, precisamente, ¿verdad?
+
+El técnico de iluminación ilumina a Afa con una luz bermeja, para 'sonrojarla'.
+
+Afa: No... yo tampoco, claro. Tengo mis problemas.
+
+Sullivan: ¿Cuáles? (con cierta ansiedad, casi esperanzado, queriendo no seguir siendo él el centro de atención)
+
+Afa: Mis hermanos Jir y Afo son perfectamente normales. Es más, diría que hasta son majestuosos... Yo, en cambio, tengo el cuello un poco más corto del que debería. ¿Veis ese árbol?
+
+Los focos iluminan al árbol para destacarlo.
+
+Afa: Ahora mismo, me encantaría poder comerme esas hojas. Pero no llego... Y una jirafa de mi edad, debería llegar.
+
+Sullivan empieza a dar saltitos.
+
+Sullivan: ¡Yo! ¡Yo te ayudaré!
+
+Afa: ¿Cómo?
+
+Sullivan: Montaré encima de ti y te alcanzaré las hojas.
+
+Afa retrocede, da un paso atrás. Vuelve la iluminación bermeja.
+
+Afa: Hace 5 minutos que me conoces, y ya quieres montar encima de mí...
+
+El técnico de sonido hace sonar una bocina.
+
+Técnico de sonido: Chicos, esas bromas... Es una obra para un público infantil.
+
+Afa: Pero si hoy en día los niños lo saben todo...
+
+Sullivan: Eso es verdad.
+
+Técnico de sonido: No digo que no, pero aquí han venido a ser niños. ¿De acuerdo?
+
+Sullivan y Afa, al unísono: Bueeeeeno.
+
+Sullivan: Venga, jirafa, ¿te ayudo o no?
+
+Vale, sube.
+
+Sullivan se sube a la cabeza de Afa, que lo eleva hasta las  ramas del árbol. Sullivan estira los brazos pero ve demasiado borroso como para atinar a arrancar las hojas.
+
+Los focos iluminan a Sullivan y apagan el resto del escenario, como si estuvieran facilitándoselo todo para que iniciara un monólogo Shakespeariano.
+
+Sullivan: Maldita sea, quiero ayudar a Afa... Pero es que no veo un pimiento. ¿Qué hago? ¿Le digo a la jirafa que las hojas están muy bien pegadas al árbol y que no puedo despegarlas, o admito que necesito las gafas?
+
+Sullivan se queda quieto. Los focos siguen enfocándole solo a él.
+
+Sullivan quiere que el público responda. El técnico de sonido está a punto de interceder pero, sin querer, pincha de nuevo las risas de Paramount Comedy.
+
+Técnico de sonido. Perdón. Error mío. Querido público, ¿podéis echarle una mano a Sullivan? Tenéis que repetir una de estas dos opciones:
+
+BURLARTE DE LA JIRAFA DICIÉNDOLE QUE LAS RAMAS ESTAN MUY PEGADAS AL ÁRBOL.
+
+O bien:
+
+ADMITE TU ERROR Y DILE QUE TE DEJE BAJAR A COGER LAS GAFAS
+
+Sullivan: Así no, técnico de sonido. Eso es demasiado largo. Vamos a ver, querido público, lo vamos a sintetizar.
+
+Decid A para:
+BURLARTE DE LA JIRAFA DICIÉNDOLE QUE LAS HOJAS ESTAN MUY PEGADAS AL ÁRBOL.
+
+Decid B para:
+ADMITE TU ERROR Y DILE QUE TE DEJE BAJAR A COGER LAS GAFAS.
+
+El técnico de sonido pone el ruido de un bocinazo.
+
+Técnico de sonido: ¡Basta! ¡Me niego!
+
+Sullivan: ¿A qué?
+
+Técnico de sonido: A esto. No puede ser que la opción A se corresponda con una frase que empieza B y la opción B con una que empieza por A...
+
+Sullivan: Pero... ah, vale, ya lo entiendo. De acuerdo, público. Pues decid A cuando queráis decir la B y decid B cuando queráis decir la A. Fácil, ¿no?
+
+Tras varias interacciones y malentendidos con el público, Sullivan elige la opción más honesta; bajar a coger las gafas y tratar de ayudar a su nueva amiga.
+
+Sullivan: Creo que lo más honesto y sensato será bajar, coger las gafas, y pedirle a Afa que me vuelva a subir, ¿os parece? ¿Me esperáis aquí mientras bajo, rebusco en la papelera las gafas y vuelvo a subir aquí?
+
+Se espera que el público interactúe para decir que sí. Cuando esto ocurre, los focos vuelven a revelar a Afa.
+
+Sullivan: Afa, tengo que decirte algo.
+
+Afa: ¿De qué se trata?
+
+Sullivan: Necesito que me bajes. No veo.
+
+Afa: Claro, no pasa nada. Gracias.
+
+Los focos iluminan solo a Sullivan mientras mete la mano en la papelera y rebusca sus gafas. La iluminación busca destacar el pequeño acto de redención de Sullivan, que rebusca en la papelera mientras se cierra el telón.
+
+
+## Acto 2. Única escena
