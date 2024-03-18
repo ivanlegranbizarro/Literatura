@@ -356,3 +356,74 @@ Se cierra el telón y concluye el Acto 2.
 
 
 La escena es casi simétricamente opuesta a la anterior. Ahora la cabeza de Afa aparece desde la parte superior del escenario, pues representa que 'ha metido las narices' en el mundo de Sullivan. La iluminación se hace muy tenue, pues están bajo tierra. Si es posible, al fondo de la cueva se representarán un conjunto de estalactitas y de estalagmitas. En esta escena se espera que el Técnico de sonido de su Do de pecho, pues el mundo de Sullivan es más sonoro que visual.
+
+Sullivan está de pie, sonriente, esplendoroso. Se ha deshecho de sus ojos woodyallenescos.
+
+Sullivan: ¿Y bien? ¿Te gusta mi morada?
+
+Afa: Bueno... es un tipo de color negro muy bonito, Sullivan.
+
+Sullivan ríe.
+
+Sullivan: No ves nada, ¿verdad?
+
+Afa: Pues la verdad es que no.
+
+Sullivan: Es que aquí no se mira con los ojos. Se mira con los oídos. Yo tuve que ponerme las gafas de ver para mirar lo que había allí afuera. Tú tienes que quitártelas.
+
+Afa: Pero si yo no llevo gafas...
+
+Sullivan: Perdóname, cuando estoy bajo tierra me pongo profundo.
+
+El Técnico de sonido pincha sus risas enlatadas.
+
+Sullivan: Gracias.
+
+Técnico de sonido: De nada.
+
+Afa: Pero... ¿qué hago?
+
+Sullivan: Cierra los ojos y concéntrate en los sonidos.
+
+Afa cierra los ojos y pone cara de concentración.
+
+El Técnico de sonido pincha remotos sonidos de ciudad. Pasos lejanos. Cláxones en la distancia, etc.
+
+Afa: ¡Funciona!
+
+Sullivan: ¡Lo ves! Me encanta el subsuelo. Desde aquí, desde mi madriguera, puedo distinguir por su sonido los pasos de mis padres cuando regresan del trabajo. Los pasos de mi padre suenan más fuertes y pesados, pero da menos pasos. Mientras que mi madre da pasitos más suaves a su lado, muchos más.
+
+Afa: Oh, me gusta eso. Lo de que puedas distinguir a tus seres queridos por el sonido que hacen al andar.
+
+Sullivan. Sí, mola mucho. Además, ahora que te conozco, podría aprender a distinguir tus pasos.
+
+Afa: Ah, ¿sí?
+
+Sullivan: Sí, a ver. Mueve los pies.
+
+El técnico de sonido debe representar los pasos que Afa está dando desde la superficie con algún tipo de instrumento de percusión simpático y poderoso, algo rítmico y contundente, sin llegar a ser estruendoso.
+
+Sullivan: Ahora siempre sabré cuándo estás cerca y, si quieres, podré salir y ayudarte a coger hojas.
+
+El Técnico de iluminación vuelve a proyectar un tono bermejo sobre la cara de Afa para 'sonrojarla'.
+
+Afa: ¿Lo harías?
+
+Sullivan: Claro, somos amigos, ¿no?
+
+Afa: Creo que sí. O, al menos, empezamos a serlo.
+
+Sullivan: Genial.
+
+Afa: Hagamos una prueba.
+
+Sullivan: ¿Cuál?
+
+La cabeza de Afa desaparece de escena. El Técnico de sonido vuelve a representar el sonido rítmico de los pasos de Afa. Sullivan ríe y se pone las gafas.
+
+Sullivan: Me voy arriba. Mi amiga quiere que la ayude.
+
+Se cierra el telón y concluye el Acto 3.
+
+
+## Acto 4. Escena única
