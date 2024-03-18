@@ -198,3 +198,38 @@ Los focos iluminan solo a Sullivan mientras mete la mano en la papelera y rebusc
 
 
 ## Acto 2. Única escena
+
+Este acto transcurrirá en las alturas. La cabeza de Afa estará a ras de 'suelo', aunque no hay tal cosa; toda la escena transcurre en el aire, con Sullivan sobre la cabeza de Afa dispuesto a recoger las hojas. El fondo del escenario puede ser alguna vista vertiginosa, o simplemente una pincelada de luz azul que pinte en la imaginación del público el cielo.
+
+Sullivan tiene las gafas en la mano y no parece decidirse a usarlas.
+
+Afa: ¿Qué tal? ¿Ya estás recogiendo las hojas?
+
+Sullivan: No... Es que me da vergüenza ponerme las gafas.
+
+Afa: ¿Por qué?
+
+Sullivan: Porque el público me va a estar mirando. Os propongo una cosa, público...
+
+El técnico de iluminación enfoca al público, juega con ellos con las luces.
+
+Sullivan: Os propongo una cosa, como a mí me da vergüenza que me veáis con las gafas puestas, ¿por qué no salís de la sala durante el Acto 2? Prometo que os contaremos todo lo que ha pasado cuando volváis para el Acto 3.
+
+Técnico de sonido: Me temo que eso no va a ser posible, topo Sullivan. Aunque hiciéramos votar a la gente, todos escogerían quedarse en la sala.
+
+Sullivan: Probemos.
+
+Técnico de sonido: De acuerdo. Estimado público, estas son vuestras dos opciones:
+
+A) Quedarse en la sala y presenciar el Acto 2.
+B) Marcharse de la sala y regresar para el Acto 3.
+
+Se espera que el público elija la A.
+
+Después de esta elección se encienden todas las luces de la sala, indicando al público que puede salir.
+
+Técnico de sonido: Un momento, técnico de iluminación, ¿qué estás haciendo? La gente quiere quedarse.
+
+Técnico de iluminación: El topo dijo que dijeran A cuando quisieran decir B...
+
+Técnico de sonido: ¡No! No le hagas caso. El público dice A cuando quiere decir A y B cuando quiere decir B.
