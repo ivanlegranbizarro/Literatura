@@ -40,7 +40,7 @@ Sullivan: No pasa nada. Todos cometemos horrores. Incluso mis padres. Pretenden 
 
 Técnico de sonido: Perdón... Querrás decir 'errores', topo Sullivan.
 
-Sullivan: No, para mí es un horror que quieran que lleve gafas. Pesan mucho, se me marcan en el puente de la nariz, se manchan de tierra cuando estoy dentro de la madriguera y, encima, ¿para qué me sirven? Yo no necesito ver. No leo el periódico, no voy al cine... A mí me gusta la música, excavar túneles, buscar lombrices...
+Sullivan: No, para mí es un horror que quieran que lleve gafas. Pesan mucho, se me marcan en el puente de la nariz, se manchan de tierra cuando estoy dentro de la madriguera y, encima, ¿para qué me sirven? Yo no necesito ver. No leo el periódico, no voy al cine... A mí me gusta la música, excavar túneles, buscar lombrices... Para admirar las maravillas de mi madriguera no necesito usar gafas. En mi madriguera reina una pacífica oscuridad sin sorpresas, sin flashazos (el Técnico de luces hará gala de su creatividad lumínica lanzando estresantes relámpagos de luz y psicodelia). Un mundo de paz y de sonidos claros.
 
 Sullivan arroja las gafas a la basura y se gira como si quisiera salir del escenario, pero antes de que salga de escena, una voz lo llama:
 
@@ -136,29 +136,15 @@ Sullivan: ¡Yo! ¡Yo te ayudaré!
 
 Afa: ¿Cómo?
 
-Sullivan: Montaré encima de ti y te alcanzaré las hojas.
+Sullivan: Me subiré a tu cabeza y te alcanzaré las hojas.
 
-Afa retrocede, da un paso atrás. Vuelve la iluminación bermeja.
-
-Afa: Hace 5 minutos que me conoces, y ya quieres montar encima de mí...
-
-El técnico de sonido hace sonar una bocina.
-
-Técnico de sonido: Chicos, esas bromas... Es una obra para un público infantil.
-
-Afa: Pero si hoy en día los niños lo saben todo...
-
-Sullivan: Eso es verdad.
-
-Técnico de sonido: No digo que no, pero aquí han venido a ser niños. ¿De acuerdo?
-
-Sullivan y Afa, al unísono: Bueeeeeno.
+Afa: Bueno... Pero que no se te suba a la cabeza subirme a la cabeza, ¿eh? Esto lo hago excepcionalmente, ¡porque tengo mucha hambre!
 
 Sullivan: Venga, jirafa, ¿te ayudo o no?
 
-Vale, sube.
+Afa: Vale, sube.
 
-Sullivan se sube a la cabeza de Afa, que lo eleva hasta las  ramas del árbol. Sullivan estira los brazos pero ve demasiado borroso como para atinar a arrancar las hojas.
+Afa baja su cabeza inclinándola casi hasta el nivel del suelo para facilitarle las cosas a Sullivan. La cabeza de Afa ha atravesado perpendicularmente la papelera, superando por primera vez la barrera que los separaba. El topo sube y la jirafa, cuidadosamente, eleva la cabeza hasta situar a Sullivan bajo las ramas del árbol. Los dos personajes están perfectamente alineados verticalmente del lado de la jirafa, como si Sullivan hubiese entrado, momentáneamente, en el mundo de ella.
 
 Los focos iluminan a Sullivan y apagan el resto del escenario, como si estuvieran facilitándoselo todo para que iniciara un monólogo Shakespeariano.
 
