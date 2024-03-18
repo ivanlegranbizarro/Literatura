@@ -326,6 +326,10 @@ Sullivan hace visera con las manos y sus ojos woodyallenescos se pasean por toda
 
 Sullivan: ¡Qué pasada! ¡Montañas! ¡Ríos!
 
-Sullivan señala a lo lejos y celebra un montón de cosas que alcanza su vista. Poco a poco, su mirada se va haciendo más cercana al público, y su boca de pasmo pasa a una mueca de decepción cuando die.
+Sullivan señala a lo lejos y celebra un montón de cosas que alcanza su vista. Poco a poco, su mirada se va haciendo más cercana al público, y su boca de pasmo pasa a una mueca de decepción cuando dice:
 
-Sullivan: ¡Parques de atracciones! ¡La estatua de la libertad! Y... oh, y aquí un frío y gris grupo de personas que tienen que venir a vernos a nosotros porque no tienen vida propia.
+Sullivan: ¡Parques de atracciones! ¡La estatua de la libertad! Y... oh, y aquí un gris y soso grupo de personas que tienen que venir a vernos a nosotros porque no tienen vida propia.
+
+Afa, el Técnico de Sonido y el Técnico de iluminación protestan:
+
+Afa, Técnico de Sonido, Técnico de iluminación al unísono: ¡PERO QUÉ DICES TOPO BOBO! ¡IR AL TEATRO ES MUY DIVERTIDO!
