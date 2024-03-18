@@ -49,9 +49,9 @@ Sullivan arroja las gafas a la basura y se gira como si quisiera salir del escen
 
 Afa: ¡Eh, tú! ¡Topo! ¿Cómo se te ocurre tirar esas gafas? Con lo que les habrá costado a tus padres comprártelas...
 
-Afa entra en escena. El técnico de sonido pincha unos aplausos enlatados.
+Afa entra en escena. El Técnico de sonido pincha unos aplausos enlatados.
 
-Afa: Gracias, técnico de sonido.
+Afa: Gracias, Técnico de sonido.
 
 Las luces comienzan a hacer cabriolas, como tratando de llamar la atención, como protestando.
 
@@ -75,7 +75,7 @@ Sullivan: ¿Eh? -consternado. No ha tenido gracia.
 
 Afa: ¿No? Dice que no ha tenido gracia, Técnico de sonido.
 
-El técnico de sonido pincha unas risas enlatadas 100% Paramount Comedy.
+El Técnico de sonido pincha unas risas enlatadas 100% Paramount Comedy.
 
 Sullivan: Hemos empezado con mala pata. No se engaña así a la gente... pero bueno. Me llamo Sullivan. ¿Y tú?
 
