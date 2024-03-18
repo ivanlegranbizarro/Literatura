@@ -351,3 +351,8 @@ Sullivan: Decid A cuando querái...
 Técnico de sonido, Técnico de iluminación y Afa: ¡Basta!
 
 Se cierra el telón y concluye el Acto 2.
+
+## Acto 3. Escena única
+
+
+La escena es casi simétricamente opuesta a la anterior. Ahora la cabeza de Afa aparece desde la parte superior del escenario, pues representa que 'ha metido las narices' en la madriguera de Sullivan. La iluminación se hace muy tenue, pues están bajo tierra. Si es posible, al fondo de la cueva se representarán un conjunto de estalactitas y de estalagmitas.
