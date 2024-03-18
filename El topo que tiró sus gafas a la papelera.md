@@ -43,7 +43,7 @@ Sullivan: No pasa nada. Todos cometemos horrores. Incluso mis padres. Pretenden 
 
 Técnico de sonido: Perdón... Querrás decir 'errores', topo Sullivan.
 
-Sullivan: No, para mí es un horror que quieran que lleve gafas. Pesan mucho, se me marcan en el puente de la nariz, se manchan de tierra cuando estoy dentro de la madriguera y, encima, ¿para qué me sirven? Yo no necesito ver. No leo el periódico, no voy al cine... A mí me gusta la música, excavar túneles, buscar lombrices... Para admirar las maravillas de mi madriguera no necesito usar gafas. En mi madriguera reina una pacífica oscuridad sin sorpresas, sin flashazos (el Técnico de luces hará gala de su creatividad lumínica lanzando estresantes relámpagos de luz y psicodelia). Un mundo de paz y de sonidos claros.
+Sullivan: No, para mí es un horror que quieran que lleve gafas. Pesan mucho, se me marcan en el puente de la nariz, se manchan de tierra cuando estoy dentro de la madriguera y, encima, ¿para qué me sirven? Yo no necesito ver. No leo el periódico, no viajo... A mí me gusta la música, excavar túneles, buscar lombrices... Para admirar las maravillas de mi madriguera no necesito usar gafas. En mi madriguera reina una pacífica oscuridad sin sorpresas, sin flashazos (el Técnico de luces hará gala de su creatividad lumínica lanzando estresantes relámpagos de luz y psicodelia). Un mundo de paz y de sonidos claros.
 
 Sullivan arroja las gafas a la basura y se gira como si quisiera salir del escenario, pero antes de que salga de escena, una voz lo llama:
 
