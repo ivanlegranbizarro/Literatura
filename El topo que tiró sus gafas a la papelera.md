@@ -337,3 +337,17 @@ Afa, Técnico de Sonido, Técnico de iluminación al unísono: ¡PERO QUÉ DICES
 Sullivan: Era broma, jolín. A ver si va a ser cierto eso de la generación de cristal...
 
 El Técnico de sonido colabora con el gag pinchando el sonido de un vidrio al romperse.
+
+Sullivan: Bromas aparte. Me ha encantado subir. Pero... ¡Se me ocurre algo!
+
+Afa: ¿El qué?
+
+Sullivan: Ya que yo he subido hasta aquí, ¿por qué no bajas tú a mi madriguera? Yo también quiero enseñarte las maravillas del mundo subterráneo.
+
+Afa: Me parece bien. Público, ¿nos esperáis mientras acompaño a Sullivan hacia el mundo subterráneo?
+
+Sullivan: Decid A cuando querái...
+
+Técnico de sonido, Técnico de iluminación y Afa: ¡Basta!
+
+Se cierra el telón y concluye el Acto 2.
