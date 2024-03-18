@@ -287,3 +287,45 @@ Sullivan: Ya te dije que no voy a la escuela, pero hasta ahí llego, ¿eh? 1 y 1
 Afa: Déjate de jueguecitos, topo bobo. Tengo hambre.
 
 Sullivan: Vale, pero necesitaré que alguien me ayude a contar, porque a mí se me olvida el número por el que voy. Como nunca leo libros, tengo muy poca memoria.
+
+Sullivan va recogiendo hojas. Se espera que el público le ayude con el recuento.
+
+Sullivan: Pues ya tenemos las hojas.
+
+Afa se relame y se pone un poco nerviosa.
+
+Afa: ¡Dámelas!
+
+Sullivan: ¿De 11 en 11?
+
+Afa: ¡Sí!
+
+Sullivan coge 1 hoja, después otra, poniéndolas lado a lado y formando un '11' delante del público y se las mete en la boca a Afa.
+
+Afa: Uhm... Qué raro.
+
+Sullivan: ¿Por qué? ¿Qué pasa?
+
+Afa: Nada, que estas 11 hojas llenan solo como 2.
+
+Sullivan: Puede ser... Mira, te doy 9 más por si acaso.
+
+Sullivan le da las hojas a Afa, que las mastica y las traga, mostrando cara de complacencia.
+
+Afa: Gracias, Sullivan. Tú sí que eres un amigo.
+
+Sullivan: De nada, Afa. Tú sí que eres un herbívoro.
+
+Afa: Topo bobo. Oye, ¿nunca habías estado tan alto, no?
+
+Sullivan: Pues no.
+
+Afa: ¿Por qué ni aprovechas para echar una ojeada a las vistas?
+
+Sullivan hace visera con las manos y sus ojos woodyallenescos se pasean por toda la sala. Poco a poco abre la boca y se muestra pasmado.
+
+Sullivan: ¡Qué pasada! ¡Montañas! ¡Ríos!
+
+Sullivan señala a lo lejos y celebra un montón de cosas que alcanza su vista. Poco a poco, su mirada se va haciendo más cercana al público, y su boca de pasmo pasa a una mueca de decepción cuando die.
+
+Sullivan: ¡Parques de atracciones! ¡La estatua de la libertad! Y... oh, y aquí un frío y gris grupo de personas que tienen que venir a vernos a nosotros porque no tienen vida propia.
