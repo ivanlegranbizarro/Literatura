@@ -24,11 +24,12 @@ Se promete solemnemente al director de la obra y a los técnicos de iluminación
 ## Acto 1. Única escena
 
 El escenario es poco más que su iluminación. Solamente hay dos elementos: una papelera en medio (que servirá, también, como elemento simbólico para separar a Sullivan y a Afa) y, esquinado en cualquiera de los dos lados, un árbol con hojas cuya altura que superarán a la de la jirafa Afa.
+
 El técnico de iluminación debe, a propósito, excederse con la iluminación al principio, como si tratara de quemar el escenario con los focos.
 
 El técnico de sonido anuncia el inicio de la obra, rogando que se apaguen los móviles y se enciendan los sonotones.
 
-Sullivan aparece desde uno de los lados del escenario y empieza a pasear nerviosamente de un lado a otro. Lleva unas gafas de culo de botella en la mano.
+Sullivan aparece desde uno de los lados del escenario y empieza a pasear nerviosamente, pero siempre en el mismo lado del escenario, respetando como límite la papelera, que no cruzará en ningún momento. Lleva unas gafas de culo de botella en la mano.
 
 El topo Sullivan se hace visera con las manos y mira hacia arriba, como si buscara a los técnicos de la sala con su mirada:
 
