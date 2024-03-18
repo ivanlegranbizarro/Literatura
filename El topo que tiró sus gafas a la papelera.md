@@ -53,9 +53,9 @@ Afa entra en escena. El técnico de sonido pincha unos aplausos enlatados.
 
 Afa: Gracias, técnico de sonido.
 
-Las luces comienza a hacer cabriolas, como tratando de llamar la atención, como protestando.
+Las luces comienzan a hacer cabriolas, como tratando de llamar la atención, como protestando.
 
-Afa: Sí, gracias a ti también, técnico de iluminación.
+Afa: Sí, gracias a ti también, Técnico de iluminación.
 
 Sullivan: Eh, ¿quién eres tú?
 
@@ -73,7 +73,7 @@ Afa: Soy una jirafa. Lo sabrías si tuvieras las gafas puestas.
 
 Sullivan: ¿Eh? -consternado. No ha tenido gracia.
 
-Afa: ¿No? Dice que no ha tenido gracia, técnico de sonido.
+Afa: ¿No? Dice que no ha tenido gracia, Técnico de sonido.
 
 El técnico de sonido pincha unas risas enlatadas 100% Paramount Comedy.
 
@@ -93,7 +93,7 @@ Sullivan: ¿Y cómo se llama?
 
 Afa: Gir. Un jirafo excelente.
 
-El técnico de sonido vuelve a pinchar más risas enlatadas.
+El Técnico de sonido vuelve a pinchar más risas enlatadas.
 
 Sullivan: Podría ser peor... Al menos no se llama 'Afo'.
 
@@ -117,11 +117,11 @@ Afa: Yo sí, ¡eres tú el que ha tirado las gafas a la papelera!
 
 Sullivan se desespera, se arrodilla en el suelo y emite la versión 'topuna' del grito de Munch.
 
-Sullivan: BASTAAAAAAAAAAAAAAAAAAaaaaaaaaa (en mitad del grito, el técnico de sonido le ha bajado la voz)
+Sullivan: BASTAAAAAAAAAAAAAAAAAAaaaaaaaaa (en mitad del grito, el Técnico de sonido le ha bajado la voz)
 
 Técnico de sonido: Chicos, si discutís así os mutearé, ¿vale? Estáis un poco intensos. Afa, ten piedad del pobre Sullivan. Tú tampoco eres perfecta, precisamente, ¿verdad?
 
-El técnico de iluminación ilumina a Afa con una luz bermeja, para 'sonrojarla'.
+El Técnico de iluminación ilumina a Afa con una luz bermeja, para 'sonrojarla'.
 
 Afa: No... yo tampoco, claro. Tengo mis problemas.
 
@@ -155,7 +155,7 @@ Sullivan: Maldita sea, quiero ayudar a Afa... Pero es que no veo un pimiento. ¿
 
 Sullivan se queda quieto. Los focos siguen enfocándole solo a él.
 
-Sullivan quiere que el público responda. El técnico de sonido está a punto de interceder pero, sin querer, pincha de nuevo las risas de Paramount Comedy.
+Sullivan quiere que el público responda. El Técnico de sonido está a punto de interceder pero, sin querer, pincha de nuevo las risas de Paramount Comedy.
 
 Técnico de sonido. Perdón. Error mío. Querido público, ¿podéis echarle una mano a Sullivan? Tenéis que repetir una de estas dos opciones:
 
@@ -165,7 +165,7 @@ O bien:
 
 ADMITE TU ERROR Y DILE QUE TE DEJE BAJAR A COGER LAS GAFAS
 
-Sullivan: Así no, técnico de sonido. Eso es demasiado largo. Vamos a ver, querido público, lo vamos a sintetizar.
+Sullivan: Así no, Técnico de sonido. Eso es demasiado largo. Vamos a ver, querido público, lo vamos a sintetizar.
 
 Decid A para:
 BURLARTE DE LA JIRAFA DICIÉNDOLE QUE LAS HOJAS ESTAN MUY PEGADAS AL ÁRBOL.
@@ -173,7 +173,7 @@ BURLARTE DE LA JIRAFA DICIÉNDOLE QUE LAS HOJAS ESTAN MUY PEGADAS AL ÁRBOL.
 Decid B para:
 ADMITE TU ERROR Y DILE QUE TE DEJE BAJAR A COGER LAS GAFAS.
 
-El técnico de sonido pone el ruido de un bocinazo.
+El Técnico de sonido pone el ruido de un bocinazo.
 
 Técnico de sonido: ¡Basta! ¡Me niego!
 
@@ -214,7 +214,7 @@ Afa: ¿Por qué?
 
 Sullivan: Porque el público me va a estar mirando. Os propongo una cosa, público...
 
-El técnico de iluminación enfoca al público, juega con ellos con las luces.
+El Técnico de iluminación enfoca al público, juega con ellos con las luces.
 
 Sullivan: Os propongo una cosa, como a mí me da vergüenza que me veáis con las gafas puestas, ¿por qué no salís de la sala durante el Acto 2? Prometo que os contaremos todo lo que ha pasado cuando volváis para el Acto 3.
 
@@ -231,7 +231,7 @@ Se espera que el público elija la A.
 
 Después de esta elección se encienden todas las luces de la sala, indicando al público que puede salir.
 
-Técnico de sonido: Un momento, técnico de iluminación, ¿qué estás haciendo? La gente quiere quedarse.
+Técnico de sonido: Un momento, Técnico de iluminación, ¿qué estás haciendo? La gente quiere quedarse.
 
 Técnico de iluminación: El topo dijo que dijeran A cuando quisieran decir B...
 
@@ -239,7 +239,7 @@ Técnico de sonido: ¡No! No le hagas caso. El público dice A cuando quiere dec
 
 Técnico de iluminación: De acuerdo...
 
-El técnico vuelve a ajustar las luces de la sala, de manera que todo vuelve a ser como antes: Una pincelada de azul, Sullivan subido a la cabeza de Afa con las gafas en la mano.
+El Técnico vuelve a ajustar las luces de la sala, de manera que todo vuelve a ser como antes: Una pincelada de azul, Sullivan subido a la cabeza de Afa con las gafas en la mano.
 
 Sullivan: Vale, acepto. Me pondré las gafas... ¿Podéis daros la vuelta en vuestras butacas?
 
@@ -404,7 +404,7 @@ Afa: Ah, ¿sí?
 
 Sullivan: Sí, a ver. Mueve los pies.
 
-El técnico de sonido debe representar los pasos que Afa está dando desde la superficie con algún tipo de instrumento de percusión simpático y poderoso, algo rítmico y contundente, sin llegar a ser estruendoso.
+El Técnico de sonido debe representar los pasos que Afa está dando desde la superficie con algún tipo de instrumento de percusión simpático y poderoso, algo rítmico y contundente, sin llegar a ser estruendoso.
 
 Sullivan: Ahora siempre sabré cuándo estás cerca y, si quieres, podré salir y ayudarte a coger hojas.
 
@@ -455,7 +455,7 @@ Sullivan: La cosa es que no soy yo el único que ha aprendido algo, ¿verdad, Af
 
 Afa: Pues no. Yo también he aprendido cosas.
 
-La iluminación se atenúa mucho y se enfoca el rostro de Afa. El técnico de sonido vuelve a pinchar ruidos de ciudad, cantos de pájaro, etc. Afa dirá la siguiente frase con los ojos cerrados.
+La iluminación se atenúa mucho y se enfoca el rostro de Afa. El Técnico de sonido vuelve a pinchar ruidos de ciudad, cantos de pájaro, etc. Afa dirá la siguiente frase con los ojos cerrados.
 
 Afa: Yo también he aprendido que hay cosas que se ven sin verse. Se saben de otras maneras.
 
