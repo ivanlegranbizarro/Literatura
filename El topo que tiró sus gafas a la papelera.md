@@ -435,7 +435,7 @@ La escena se parece mucho a la única escena del Acto 1, por lo que ya no se esp
 
 La iluminación es un poco más intensa que en el Acto 1. Hace un día espléndido. Gran pincelada de azul de fondo. Afa y Sullivan estarán bien iluminados, pero no lo bastante como para que Sullivan tenga que repetir su chiste sobre las gafas de sol.
 
-Ambos personajes aparecen en escena alegres. Sullivan aparece sonriente, con su cara boba y casi terrorífica de 'demasiado mejor', con esos ojos woodyallenescos. Los personajes están separados por la papelera, pero durante el acto Sullivan paseará por el escenario atravesando la papelera, dando a entender que ahora puede fluctuar con facilidad entre 'su lado' y el 'el de Afa'.
+Ambos personajes aparecen en escena alegres. Sullivan aparece sonriente, con su cara boba y casi terrorífica de 'demasiado mejor', con esos ojos woodyallenescos. Los personajes están separados por la papelera, pero durante el acto Sullivan paseará por el escenario atravesando la papelera, dando a entender que ahora puede fluctuar con facilidad entre 'su lado' y 'el de Afa'.
 
 Sullivan: Y así, estimado público, es como dejé de negarme a usar las gafas. Comprendiendo que a veces es bueno poder ver lo que hay a tu alrededor.
 
