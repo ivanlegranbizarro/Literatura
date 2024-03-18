@@ -437,9 +437,9 @@ La iluminación es un poco más intensa que en el Acto 1. Hace un día espléndi
 
 Ambos personajes aparecen en escena alegres. Sullivan aparece sonriente, con su cara boba y casi terrorífica de 'demasiado mejor', con esos ojos woodyallenescos. Los personajes están separados por la papelera, pero durante el acto Sullivan paseará por el escenario atravesando la papelera, dando a entender que ahora puede fluctuar con facilidad entre 'su lado' y el 'el de Afa'.
 
-Sullivan: Y así es como dejé de negarme a usar las gafas. Comprendiendo que a veces es bueno poder ver lo que hay a tu alrededor.
+Sullivan: Y así, estimado público, es como dejé de negarme a usar las gafas. Comprendiendo que a veces es bueno poder ver lo que hay a tu alrededor.
 
-Afa: Sullivan las se las pone cuando sale afuera de su madriguera a jugar conmigo o a ayudarme a recoger hojas. Es una solución estupenda. Se la propuse yo. Porque mi pensamiento es más elevado que el suyo.
+Afa: Sullivan se las pone cuando sale afuera de su madriguera a jugar conmigo o a ayudarme a recoger hojas. Es una solución estupenda. Se la propuse yo. Porque mi pensamiento es más elevado que el suyo.
 
 Sullivan: ¿Qué quieres decir con eso? ¿No habíamos acordado ya que mi mente es más profunda que la tuya?
 
@@ -455,9 +455,9 @@ Sullivan: La cosa es que no soy yo el único que ha aprendido algo, ¿verdad, Af
 
 Afa: Pues no. Yo también he aprendido cosas.
 
-La iluminación se atenúa mucho y se enfoca el rostro de Afa. El Técnico de sonido vuelve a pinchar ruidos de ciudad, cantos de pájaro, etc. Afa dirá la siguiente frase con los ojos cerrados.
+La iluminación se atenúa mucho y se enfoca el rostro de Afa, esta cierra los ojos. El Técnico de sonido vuelve a pinchar ruidos de ciudad, cantos de pájaros, etc.
 
-Afa: Yo también he aprendido que hay cosas que se ven sin verse. Se saben de otras maneras.
+Afa: Yo también he aprendido que hay cosas que se ven sin verse. Que se saben y se pueden ver de otras maneras.
 
 Afa abre los ojos emocionada, como si hubiera tenido una idea excelente.
 
@@ -465,7 +465,7 @@ Afa: ¡Sullivan! ¿Por qué no escribimos una obra de teatro juntos?
 
 Sullivan: ¿Cómo se llamaría?
 
-Afa: 'La jirafa que aprendió a ver sin ojos'. Público, ¿iríais a ver una obra que se titulara así?
+Afa: 'La jirafa que aprendió a ver más cosas de las que se pueden ver'. Público, ¿iríais a ver una obra que se titulara así?
 
 Sullivan: Decid A cuando querái...
 
@@ -477,8 +477,8 @@ Afa: Entonces, Sullivan. Pongámonos a escribir la segunda parte de esta histori
 
 Sullivan: No sería una segunda parte. Sería... ¿una precuela? No, tampoco.
 
-Afa: ¿Un multiverso?
+Afa: ¿Una simultáneocuela?
 
-Sullivan: No sé, algo así. Ya lo iremos viendo, ¿no?
+Sullivan: No sé si cuela o no, pero ya lo iremos viendo mientras la escribimos, ¿te parece?
 
-La iluminación se va haciendo más tenue. Sullivan y Afa pasean yendo de un lado de la escena a otro, como discutiendo ideas para la obra que piensan escribir juntos. La papelera ya no es ningún obstáculo entre ellos. El telón se cierra gradualmente, acompañado por el progresivo apagado de las luces.
+La iluminación se va haciendo más tenue. Sullivan y Afa pasean yendo de un lado del escenario al otro, como discutiendo ideas para la obra que piensan escribir juntos. La papelera ya no es ningún obstáculo entre ellos. El telón se cierra gradualmente, acompañado por el progresivo apagado de las luces.
