@@ -333,3 +333,7 @@ Sullivan: ¡Parques de atracciones! ¡La estatua de la libertad! Y... oh, y aqu�
 Afa, el Técnico de Sonido y el Técnico de iluminación protestan:
 
 Afa, Técnico de Sonido, Técnico de iluminación al unísono: ¡PERO QUÉ DICES TOPO BOBO! ¡IR AL TEATRO ES MUY DIVERTIDO!
+
+Sullivan: Era broma, jolín. A ver si va a ser cierto eso de la generación de cristal...
+
+El Técnico de sonido colabora con el gag pinchando el sonido de un vidrio al romperse.
