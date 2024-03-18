@@ -265,3 +265,25 @@ Afa: ¿Mejor?
 Sullivan: Demasiado mejor.
 
 Se gira y y el público por fin ve al topo con unos ojos enormemente aumentados.
+
+Sullivan: Bien, voy a recoger las hojas. ¿Cuántas necesitas?
+
+Afa: Pues yo... suelo comer de 11 en 11 las hojas.
+
+Sullivan: De acuerdo. Ahí voy.
+
+Sullivan recoge su primera hoja.
+
+Sullivan: ¡1!
+
+Sullivan recoge su segunda hoja.
+
+Sullivan ¡11!
+
+Afa: ¿Cómo?
+
+Sullivan: Ya te dije que no voy a la escuela, pero hasta ahí llego, ¿eh? 1 y 1 son 11, ¿quién puede negarlo?
+
+Afa: Déjate de jueguecitos, topo bobo. Tengo hambre.
+
+Sullivan: Vale, pero necesitaré que alguien me ayude a contar, porque a mí se me olvida el número por el que voy. Como nunca leo libros, tengo muy poca memoria.
