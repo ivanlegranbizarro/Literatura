@@ -233,3 +233,35 @@ Técnico de sonido: Un momento, técnico de iluminación, ¿qué estás haciendo
 Técnico de iluminación: El topo dijo que dijeran A cuando quisieran decir B...
 
 Técnico de sonido: ¡No! No le hagas caso. El público dice A cuando quiere decir A y B cuando quiere decir B.
+
+Técnico de iluminación: De acuerdo...
+
+El técnico vuelve a ajustar las luces de la sala, de manera que todo vuelve a ser como antes: Una pincelada de azul, Sullivan subido a la cabeza de Afa con las gafas en la mano.
+
+Sullivan: Vale, acepto. Me pondré las gafas... ¿Podéis daros la vuelta en vuestras butacas?
+
+Afa: Sullivan... ¿y no será más fácil si te das la vuelta tú?
+
+Sullivan: Dicen que darle la espalda al público es de mala educación.
+
+Afa: Va, ¡póntelas! ¡Ponte ya las gafas! ¡Tengo hambre! Por favor, público. ¡Animad a Sullivan!
+
+El público le anima.
+
+Sullivan: No os reiréis, ¿verdad?
+
+Afa: Qué va. Todos prometemos solemnemente reírnos de ti, ¿verdad?
+
+Sullivan: Que no me las pongo, eh...
+
+Afa: Por favor...
+
+Sullivan: Está bien.
+
+Sullivan se da la vuelta y se pone las gafas. Las gafas le aumentan muchísimo los ojos, dándole un aspecto woodyallenesco.
+
+Afa: ¿Mejor?
+
+Sullivan: Demasiado mejor.
+
+Se gira y y el público por fin ve al topo con unos ojos enormemente aumentados.
