@@ -1,6 +1,8 @@
 ## El topo que tiró sus gafas a la papelera
 
-# Dedicado a Gemma Aragonés Audí, que me presentó a la jirafa Afa en una noche que difícilmente olvidaré
+# Dedicado a Gemma Aragonés Audí, que me presentó a la jirafa Afa en una noche que difícilmente olvidaré.
+
+# La jirafa Afa es una propiedad intelectual de Gemma Aragonés Audí. Si, a partir de esta obra de teatro, la carrera de la jirafa Afa se viera propulsada hasta Broadway, las regalías y derechos de autor serán para Gemma. Contactad con ella.
 
 
 ## Guía de personajes
@@ -427,3 +429,55 @@ Se cierra el telón y concluye el Acto 3.
 
 
 ## Acto 4. Escena única
+
+La escena se parece mucho a la única escena del Acto 1, por lo que ya no se espera que El Técnico de sonido ni el de iluminación den el Do de pecho. ¡Pero tampoco pueden abandonar sus puestos! Aún les queda algo de trabajo por hacer.
+
+La iluminación es un poco más intensa que en el Acto 1. Hace un día espléndido. Gran pincelada de azul de fondo. Afa y Sullivan estarán bien iluminados, pero no lo bastante como para que Sullivan tenga que repetir su chiste sobre las gafas de sol.
+
+Ambos personajes aparecen en escena alegres. Sullivan aparece sonriente, con su cara boba y casi terrorífica de 'demasiado mejor', con esos ojos woodyallenescos. Los personajes están separados por la papelera, pero durante el acto Sullivan paseará por el escenario atravesando la papelera, dando a entender que ahora puede fluctuar con facilidad entre 'su lado' y el 'el de Afa'.
+
+Sullivan: Y así es como dejé de negarme a usar las gafas. Comprendiendo que a veces es bueno poder ver lo que hay a tu alrededor.
+
+Afa: Sullivan las se las pone cuando sale afuera de su madriguera a jugar conmigo o a ayudarme a recoger hojas. Es una solución estupenda. Se la propuse yo. Porque mi pensamiento es más elevado que el suyo.
+
+Sullivan: ¿Qué quieres decir con eso? ¿No habíamos acordado ya que mi mente es más profunda que la tuya?
+
+Afa: Tu mente es más profunda que la mía, pero la mía es más elevada.
+
+Sullivan: ¿Por qué?
+
+Afa: Sullivan, haces unas preguntas... Mi cabeza está cuatro metros por encima de la tuya.
+
+Sullivan ríe.
+
+Sullivan: La cosa es que no soy yo el único que ha aprendido algo, ¿verdad, Afa?
+
+Afa: Pues no. Yo también he aprendido cosas.
+
+La iluminación se atenúa mucho y se enfoca el rostro de Afa. El técnico de sonido vuelve a pinchar ruidos de ciudad, cantos de pájaro, etc. Afa dirá la siguiente frase con los ojos cerrados.
+
+Afa: Yo también he aprendido que hay cosas que se ven sin verse. Se saben de otras maneras.
+
+Afa abre los ojos emocionada, como si hubiera tenido una idea excelente.
+
+Afa: ¡Sullivan! ¿Por qué no escribimos una obra de teatro juntos?
+
+Sullivan: ¿Cómo se llamaría?
+
+Afa: 'La jirafa que aprendió a ver sin ojos'. Público, ¿iríais a ver una obra que se titulara así?
+
+Sullivan: Decid A cuando querái...
+
+Afa, Técnico de sonido y de iluminación: ¡Decid sí o no!
+
+Se espera que el público diga que sí.
+
+Afa: Entonces, Sullivan. Pongámonos a escribir la segunda parte de esta historia.
+
+Sullivan: No sería una segunda parte. Sería... ¿una precuela? No, tampoco.
+
+Afa: ¿Un multiverso?
+
+Sullivan: No sé, algo así. Ya lo iremos viendo, ¿no?
+
+La iluminación se va haciendo más tenue. Sullivan y Afa pasean yendo de un lado de la escena a otro, como discutiendo ideas para la obra que piensan escribir juntos. La papelera ya no es ningún obstáculo entre ellos. El telón se cierra gradualmente, acompañado por el progresivo apagado de las luces.
