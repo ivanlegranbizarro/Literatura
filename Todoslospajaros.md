@@ -25364,3 +25364,41 @@ perfectamente:
 el amor,
 cuando ocurre,
 siempre es un accidente.
+
+
+
+
+
+## 19 de marzo
+
+Le pregunto a Gemma
+si se ha acordado
+de felicitar a su padre.
+Me contesta que sí
+y me devuelve la pregunta.
+
+Yo al mío todavía no,
+le respondo,
+'es que hoy hacía calor
+y tengo sus cenizas
+guardadas en el armario
+de las chaquetas'.
+
+Me pregunta que si mi padre
+no quería que lanzase
+sus cenizas en alguna parte.
+
+Le digo que no,
+que yo iba a tirarlas al mar,
+pero que me resisto a hacerlo
+porque él
+nunca aprendió a nadar.
+
+Gemma no se ríe,
+dice que mi sentido del humor
+es raro.
+Le digo que
+en eso se equivoca.
+Porque sé
+que, a mi padre,
+le habría hecho mucha gracia esa broma.
