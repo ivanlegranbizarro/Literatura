@@ -25427,7 +25427,6 @@ Pero sé que aún soy joven
 porque el dolor
 todavía me pone nervioso.
 
-
 Para mí el dolor
 tiene que ser algo raro.
 Mi familia es muy luminosa.
