@@ -25402,3 +25402,56 @@ en eso se equivoca.
 Porque sé
 que, a mi padre,
 le habría hecho mucha gracia esa broma.
+
+
+
+
+
+## Sin tostadora
+
+Cuando era un niño
+esperaba crecer
+varios centímetros
+después de cada gripe.
+Recuerdo a mi abuela
+busca que te busca
+la cinta de medir en la caja de costura,
+para comprobar mi nueva altura.
+
+Ninguna gripe
+me volverá
+a hacer crecer nunca más.
+Bromeo con mi edad.
+Con los incipientes achaques.
+Pero sé que aún soy joven
+porque el dolor
+todavía me pone nervioso.
+
+
+Para mí el dolor
+tiene que ser algo raro.
+Mi familia es muy luminosa.
+Da igual si fuera caen bombas,
+nosotros cantamos coplas
+y sonreímos a la piel
+de las patatas que andamos pelando.
+
+Quiero que cuando Gemma esté aquí
+seamos muy primarios.
+Que nos sorprendamos
+del agua que cae del grifo
+sin que medie
+la proximidad de ningún río.
+Que nos sorprendamos
+de las personas
+tan guapas,
+que desde el espejo de mi baño
+nos devuelven la mirada.
+
+Para el desayuno
+tostaremos pan
+sin tostadora.
+Como hacía mi abuela;
+sonriendo mientras
+arrimaba al fuego
+cualquier cosa.
