@@ -25454,3 +25454,100 @@ Como hacía mi abuela;
 sonriendo mientras
 arrimaba al fuego
 cualquier cosa.
+
+
+
+
+
+### 20.000 ballenas muertas
+
+A veces
+un gesto tuyo
+masifica mi corazón.
+Lo hace poblarse
+de sombras y heridas
+que te espían atentamente
+durante mucho tiempo.
+
+Otras veces,
+cuando estamos juntos
+en tu cama,
+se me olvida
+que fui un niño
+al que operaron de apendicitis.
+
+Es casi gracioso
+y casi religioso,
+cuando en los informativos
+hablan de los muertos
+diciendo
+que han hallado un cuerpo.
+Como si alguien
+en la otra punta de la ciudad
+pudiera hallar
+el alma
+que le correspondía a ese cuerpo.
+Ojalá fuera así;
+bastaría con unirlos
+como cuando Wendy
+le cosía de nuevo
+su sombra a Peter Pan.
+
+Esto es el paso del tiempo.
+Ir encontrado
+cada vez menos
+cuerpos y menos almas
+entre los escombros.
+
+Sé que hay días
+en los que te apetece
+olvidarte de que existo.
+De que existo
+y de que soy
+una hucha
+llena de sueños contigo.
+
+Nunca nos conoceremos de verdad
+hasta que no bañemos juntos
+a un perro.
+Uno sabe de verdad
+cómo es alguien
+cuando un perro
+le pone perdido agua
+al sacudirse:
+la risa,
+la sonrisa,
+el enfado,
+o la ira mal contenida.
+
+Le como el coño
+a la mujer de mis sueños
+mientras Irán y Palestina
+se atacan.
+
+¿Cómo puedes gustarme tanto
+cuando ni siquiera hemos
+tomado un taxi juntos?
+
+Cuando ni siquiera
+has permitido
+que bebamos agua
+del mismo vaso.
+
+Para mí, eso es casarse
+con alguien:
+beber agua
+del mismo vaso.
+
+Te estoy esperando.
+A pesar de que cada año
+los barcos de todo el mundo
+maten a más de 20.000 ballenas
+debido al embiste
+de sus motores.
+
+Un día te besaré
+de una forma tan especial
+en mitad de la calle
+que solo querrás
+empezar el futuro conmigo.
