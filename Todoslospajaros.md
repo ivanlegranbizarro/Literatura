@@ -25551,3 +25551,45 @@ de una forma tan especial
 en mitad de la calle
 que solo querrás
 empezar el futuro conmigo.
+
+
+
+
+
+## La cajita
+
+
+
+Superar algo
+es permitir
+que te acompañe para siempre.
+Por eso siempre digo
+que esta casa
+está llena de fantasmas.
+Me pongo el reloj de mi abuelo.
+Saludo a la fea hurna
+que contiene las cenizas de mi padre.
+Salgo a la calle
+contento de ser
+el río
+que los prosigue
+y los contiene.
+Lo hago
+porque yo,
+al igual que los romanos,
+construyo la Necrópolis 
+muy cerca
+del Circo.
+Cuando lo oscuro, cuando lo sombrío;
+da igual, cuando todo
+alcanzó su tamaño natural,
+mi abuelo me insistía
+en que, al final,
+la vida son solo 
+un puñado de años
+que guardas en una cajita
+que aprietas muy fuerte
+mientras esperas
+a que la riada
+todo se lo lleve
+y el seguro lo pague.
