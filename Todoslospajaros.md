@@ -25588,8 +25588,7 @@ en que, al final,
 la vida son solo 
 un puñado de años
 que guardas en una cajita
-que aprietas muy fuerte
+a la que te agarras muy fuerte,
 mientras esperas
 a que la riada
-todo se lo lleve
-y el seguro lo pague.
+venga y se la lleve.
