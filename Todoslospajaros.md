@@ -25592,3 +25592,66 @@ a la que te agarras muy fuerte,
 mientras esperas
 a que la riada
 venga y se la lleve.
+
+
+
+
+
+## Toda la tristeza de John Travolta
+
+
+
+
+Mi generación ni siquiera
+quiere ganar.
+Queremos simplemente
+ser finalistas de algo.
+
+Qué tarde empiezan nuestras vidas.
+Cuánto deseo.
+Cuánto deseo de encontrar
+una brizna,
+una brizna de algo.
+
+Y sin embargo,
+por muy tristes
+y apocadas que sean las vidas
+de los de mi generación,
+sé que hay alguien
+que se siente todavía
+mucho más triste que yo:
+el afamado actor
+John Travolta.
+
+Estoy completamente convencido
+de que toda su vida
+se la pasó
+sentado en un columpio,
+pensando en por qué
+nunca funcionó
+lo suyo con Olivia Newton John.
+
+El otro día con Rubén,
+hablando de nuestras vidas alegres,
+pero un poco rotas,
+me dio por enseñarle
+fotos de la pista de aterrizaje
+que serpentea 
+la mansión de John Travolta.
+Rubén enseguida lo entendió:
+'La de cosas
+que hace este tío
+por olvidarse
+de Olivia Newton John'.
+
+Cuando conocí a Gemma,
+los ojos se me hicieron tan grandes
+como los de los niños
+que se quedan despiertos
+para ver crecer la noche,
+mientras esperan a Papa Noel.
+
+Solo ahora,
+cuando Gemma y yo acabamos de dejarlo,
+estoy en disposición de entender
+toda la tristeza de John Travolta.
