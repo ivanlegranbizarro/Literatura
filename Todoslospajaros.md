@@ -25577,7 +25577,7 @@ y los contiene.
 Lo hago
 porque yo,
 al igual que los romanos,
-construyo la Necrópolis 
+construyo la Necrópolis
 muy cerca
 del Circo.
 Cuando lo oscuro, cuando lo sombrío;
@@ -25585,7 +25585,7 @@ da igual, cuando todo
 alcanzó su tamaño natural,
 mi abuelo me insistía
 en que, al final,
-la vida son solo 
+la vida son solo
 un puñado de años
 que guardas en una cajita
 a la que te agarras muy fuerte,
@@ -25636,7 +25636,7 @@ hablando de nuestras vidas alegres,
 pero un poco rotas,
 me dio por enseñarle
 fotos de la pista de aterrizaje
-que serpentea 
+que serpentea
 la mansión de John Travolta.
 Rubén enseguida lo entendió:
 'La de cosas
