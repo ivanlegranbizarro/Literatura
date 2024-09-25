@@ -25655,3 +25655,68 @@ Solo ahora,
 cuando Gemma y yo acabamos de dejarlo,
 estoy en disposición de entender
 toda la tristeza de John Travolta.
+
+
+
+
+
+## 39
+
+
+
+El otro día
+un árbol me sonrió
+a través de sus pájaros.
+
+Ya tengo 39 años
+y lo más destacable 
+de esta edad 
+son los preparativos mentales
+que voy haciendo
+para despedirme de mi madre.
+
+La muerte de mi madre
+no debe pillarme
+sin las maletas hechas;
+sin el traje limpio y planchado
+para asistir a su funeral.
+
+Tengo 39 años y es agradable,
+y sorprendentemente bueno,
+ver cómo mis amigos
+van embarcándose en sus edades
+siendo prácticamente los mismos.
+
+Algunos tienen algo menos de pelo.
+Otros son más realistas
+con el tamaño de sus sueños,
+pero esencialmente
+todos siguen
+siendo ellos 
+por ahora.
+
+Sé que mi vida
+va a ir convirtiéndose en el temor
+de vigilar ese 'por ahora'.
+
+Comparar, por ahora, el mundo
+con el estado de mi madre.
+Pensar en su siguiente cita médica.
+Recordar su dolor de rodilla,
+urgirme a vivir
+en los compases de espera
+de mi madre.
+
+No pasa nada.
+Esto forma parte del todo.
+Voy perdiendo cosas
+mientras noto
+que por fin tengo
+la equipación correcta
+para hacer bien las cosas.
+
+Tengo 39 años
+y solo puedo dar fe
+de que la vida no es buena,
+aunque sea hermosa.
+
