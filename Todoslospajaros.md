@@ -25720,3 +25720,87 @@ y solo puedo dar fe
 de que la vida no es buena,
 aunque sea hermosa.
 
+
+
+
+## ¿Os importa Iván?
+
+
+
+
+¿Estará Carla
+enrollándose un mechón de pelo
+en el dedo
+índice mientras
+saborea una lección de Kant? 
+
+O bien, 
+habrá ido
+a hacerse las uñas
+y más tarde
+me enviará una foto.
+
+Hace poco
+me llamó Andrea
+para contarme que el médico
+le ha dicho
+que si no pierde peso
+podría formársele un trombo.
+
+¿Os importa Iván?
+Porque si os importa
+sabréis que le preocupa todo.
+
+A veces miro a Carla
+de la misma forma
+en que un hambriento
+sopla la cuchara
+caliente de sopa.
+
+Carla y yo
+estamos en nuestro
+momento magnético.
+Y, sin embargo,
+al mismo tiempo
+pienso que vivir
+se parece mucho
+a esos cohetes
+que siguen.
+Que salen de la atmósfera
+y siguen
+mientras van perdiendo cosas.
+
+Menuda disonancia
+entre la esperanza de vida
+y la esperanza de vivir.
+
+Pasan los años,
+mi siglo
+está siendo tiroteado
+por los acontecimientos.
+
+Sorteo todo lo sorteable.
+Me he convertido
+en un forastero
+en este presentimiento
+de que todo
+podría salir bien.
+
+Cuando voy a tu casa, Carla
+no miro hacia los lados
+al cruzar la carretera.
+Voy a ti
+como un peatón alucinado
+que se acerca al momento
+en el que nace
+o muere
+algo de él.
+
+Cuando no hablamos
+deseo que los teléfonos
+vuelvan a tener diales,
+para que llamar a alguien
+vuelva a ser, 
+sobre todo,
+el deseo
+de marcarle.
