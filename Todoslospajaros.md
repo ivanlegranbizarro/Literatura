@@ -25804,3 +25804,156 @@ vuelva a ser,
 sobre todo,
 el deseo
 de marcarle.
+
+
+
+
+## Pop
+
+
+
+
+### Los señores de los anillos
+
+Mi madre siempre llevaba puesta su alianza.
+Pasaban los años, extendía la mano
+y se quedaba absorta mirándola.
+
+Mi padre, sin embargo,
+se la quitaba
+nada más salir de casa.
+Argumentaba que era
+porque le daba miedo
+que se le estropeara en el trabajo.
+
+Después de divorciarse
+ambos sobreescribieron el nombre del otro
+con el de sus nuevas parejas.
+
+Aunque me parezca
+un gesto feo,
+les entiendo;
+Se habían divorciado,
+pero yo les seguía queriendo
+y no me hubiera gustado
+que hubieran tenido
+que atravesar todo Mordor
+para destruir sus anillos.
+
+
+
+
+
+### La ladrona
+
+Me gusta lo sibilinamente 
+que Carla se desliza hasta el baño
+después de que hagamos el amor.
+Baja la tapa del retrete
+con suma delicadeza,
+como si, en realidad,
+fuera una ladrona 
+que se escabulle del Louvre
+por las alcantarillas de la ciudad.
+
+
+
+
+
+### Ojos de sapo, patas de rana; tendrás buena suerte, durante toda la semana
+
+Cuando yo era pequeño
+mi madre trabajaba echando las cartas.
+Mucha gente venía a casa
+preguntando por su futuro
+y casi siempre era lo mismo:
+El Sol.
+La Torre del revés.
+El recordatorio
+de que la carta de la Muerte
+no significa muerte,
+sino cambio 
+y, sobre todo,
+la esperanzadora garantía
+de que había un hombre alto y moreno,
+o una mujer 
+de ojos verdes
+esperándoles
+a la vuelta de la esquina.
+
+Lo malo,
+es que a veces venía gente
+preguntando por su pasado.
+Estas personas
+eran escépticas
+o estaban desesperadas.
+Una vez, una señora,
+le preguntó a mi madre
+que cómo se llamaba su hija muerta.
+Mi madre guardó las cartas,
+y casi con simpatía mal fingida,
+como quien riñe a un niño que le cae bien,
+la invitó a marcharse de casa.
+
+
+
+
+
+## El paraguas duerme en su torre de viento
+
+Siempre digo que mi película favorita
+de Disney es el Rey León.
+Y lo es. 
+Pero antes de esa
+lo fue Merlín el encantador.
+
+
+
+
+## Loza lunar
+
+Este frío repentino
+me ha revelado
+que en la loza blanca
+de la vajilla de boda de mis padres
+cenar sopa
+se parece mucho
+a comerse la luna a cucharadas.
+
+
+
+
+## Mi abuela
+
+Ella lo tenía muy claro.
+Arguiñano era buena persona
+porque era muy limpio en la cocina.
+
+Mi abuela era analfabeta
+a pesar de todo el amor
+y toda la paciencia
+con los que mi abuelo
+sacaba un lápiz y unos folios,
+una vez por semana,
+tratando de enseñarla 
+a enlazar vocales
+con consonantes.
+
+Mi abuela era el sueño
+de cualquier niño huérfano;
+siempre tenía un caramelo
+o un beso para darte.
+
+Nunca se enfadaba
+y solo perdía el buen humor
+cuando escuchaba una ambulancia,
+o cuando tenía la sensación
+de que había encontrado
+un rastro de un olor a butano.
+Entonces dejaba que su nariz
+tirase de ella
+para seguir ese olor
+que habría de conducirla
+a algún explosivo
+que le habría escondido en su casa
+alguien de la ETA.
