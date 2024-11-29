@@ -25957,3 +25957,35 @@ que habría de conducirla
 a algún explosivo
 que le habría escondido en su casa
 alguien de la ETA.
+
+
+
+
+
+## Black Friday
+
+El otro día 
+me compré una silla rebajada 
+por el Black Friday.
+Tenía que ir un poco lejos a buscarla,
+así que busqué en la información del email 
+cuánto pesaba el bulto:
+10 kilos.
+
+¿Puedo yo sostener 10 kilos
+durante un rato prolongado?
+Y entonces me asaltó el recuerdo 
+de que 10 kilogramos 
+era exactamente 
+lo que pesaba la Cristi.
+Yo la cogía en brazos 
+unos metros antes de llegar al veterinario 
+para calmar sus temblores de miedo.
+
+También la alzaba en mis brazos
+cuando la llamaba desde lejos 
+y venía corriendo,
+disparada hasta mí,
+con esa sonrisa 
+que solo tienen los perros.
+
