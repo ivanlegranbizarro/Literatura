@@ -25985,6 +25985,6 @@ para calmar sus temblores de miedo.
 También la alzaba en mis brazos
 cuando la llamaba desde lejos
 y venía corriendo,
-para clavarse en mí,
+para clavarse contra mí,
 con esa sonrisa
 que solo tienen los perros.
