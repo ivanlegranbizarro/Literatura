@@ -25669,8 +25669,8 @@ un árbol me sonrió
 a través de sus pájaros.
 
 Ya tengo 39 años
-y lo más destacable 
-de esta edad 
+y lo más destacable
+de esta edad
 son los preparativos mentales
 que voy haciendo
 para despedirme de mi madre.
@@ -25692,7 +25692,7 @@ Otros son más realistas
 con el tamaño de sus sueños,
 pero esencialmente
 todos siguen
-siendo ellos 
+siendo ellos
 por ahora.
 
 Sé que mi vida
@@ -25732,9 +25732,9 @@ aunque sea hermosa.
 enrollándose un mechón de pelo
 en el dedo
 índice mientras
-saborea una lección de Kant? 
+saborea una lección de Kant?
 
-O bien, 
+O bien,
 habrá ido
 a hacerse las uñas
 y más tarde
@@ -25800,7 +25800,7 @@ Cuando no hablamos
 deseo que los teléfonos
 vuelvan a tener diales,
 para que llamar a alguien
-vuelva a ser, 
+vuelva a ser,
 sobre todo,
 el deseo
 de marcarle.
@@ -25846,13 +25846,13 @@ para destruir sus anillos.
 
 ### La ladrona
 
-Me gusta lo sibilinamente 
+Me gusta lo sibilinamente
 que Carla se desliza hasta el baño
 después de que hagamos el amor.
 Baja la tapa del retrete
 con suma delicadeza,
 como si, en realidad,
-fuera una ladrona 
+fuera una ladrona
 que se escabulle del Louvre
 por las alcantarillas de la ciudad.
 
@@ -25872,11 +25872,11 @@ La Torre del revés.
 El recordatorio
 de que la carta de la Muerte
 no significa muerte,
-sino cambio 
+sino cambio
 y, sobre todo,
 la esperanzadora garantía
 de que había un hombre alto y moreno,
-o una mujer 
+o una mujer
 de ojos verdes
 esperándoles
 a la vuelta de la esquina.
@@ -25903,7 +25903,7 @@ la invitó a marcharse de casa.
 
 Siempre digo que mi película favorita
 de Disney es el Rey León.
-Y lo es. 
+Y lo es.
 Pero antes de esa
 lo fue Merlín el encantador.
 
@@ -25935,7 +25935,7 @@ y toda la paciencia
 con los que mi abuelo
 sacaba un lápiz y unos folios,
 una vez por semana,
-tratando de enseñarla 
+tratando de enseñarla
 a enlazar vocales
 con consonantes.
 
@@ -25964,28 +25964,27 @@ alguien de la ETA.
 
 ## Black Friday
 
-El otro día 
-me compré una silla rebajada 
+El otro día
+me compré una silla rebajada
 por el Black Friday.
 Tenía que ir un poco lejos a buscarla,
-así que busqué en la información del email 
+así que busqué en la información del email
 cuánto pesaba el bulto:
 10 kilos.
 
 ¿Puedo yo sostener 10 kilos
 durante un rato prolongado?
-Y entonces me asaltó el recuerdo 
-de que 10 kilogramos 
-era exactamente 
+Y entonces me asaltó el recuerdo
+de que 10 kilogramos
+era exactamente
 lo que pesaba la Cristi.
-Yo la cogía en brazos 
-unos metros antes de llegar al veterinario 
+Yo la cogía en brazos
+unos metros antes de llegar al veterinario
 para calmar sus temblores de miedo.
 
 También la alzaba en mis brazos
-cuando la llamaba desde lejos 
+cuando la llamaba desde lejos
 y venía corriendo,
-para clavarse a mí,
-con esa sonrisa 
+para clavarse en mí,
+con esa sonrisa
 que solo tienen los perros.
-
