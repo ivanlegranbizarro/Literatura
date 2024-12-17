@@ -25988,3 +25988,75 @@ y venía corriendo,
 para clavarse contra mí,
 con esa sonrisa
 que solo tienen los perros.
+
+
+
+
+## Inmortal
+
+
+
+Yo solo
+me como las uvas
+de Fin de año,
+porque temo que si no lo hago,
+ese año
+muera mi madre.
+
+El otro día
+escuché un podcast
+en el que un médico hablaba
+de la cercanía de la inmortalidad.
+Decía que está a la vuelta de la esquina,
+para todos,
+en menos de 30 años.
+
+Pero de aquí a 30 años,
+mi madre,
+con su nombre de montaña,
+ya no estará viva.
+
+¿Para qué querría un hijo
+echar de menos a sus padres
+de manera interminable?
+
+Si nos volviésemos inmortales,
+¿se borrarían
+las líneas de la vida
+de nuestras manos? 
+
+Si yo nunca fuera a acabarme,
+¿me molestaría en seguir
+sonriendo a los pájaros del Delta,
+en señal
+de tímido agradecimiento
+por la primavera?
+
+Almacenaría tantas memorias
+a lo largo de los siglos,
+que me pregunto si mi cerebro
+no sobreescribiría
+los recuerdos que tengo de mi abuela
+cuando me quería. Cuando me besaba
+en la mejilla y me pedía
+que tuviera cuidado con los chicles,
+porque resulta
+que si un niño se traga un chicle,
+este se le puede pegar
+en el corazón.
+
+¿Se puede seguir siendo humano
+sin ser mortal? 
+Qué cobardes seríamos
+si nuestra misión principal
+fuera preservarnos para siempre.
+
+Me imagino,
+dentro de mil años,
+odiando esta casa tan pequeña,
+porque apenas si recordaría
+que aquí amé a Andrea.
+Que aquí, en esta casa tan pequeña,
+cupo nuestro amor
+y el tamaño feliz
+de todas nuestras cosas.
